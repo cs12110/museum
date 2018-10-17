@@ -4,6 +4,8 @@
 
 **Just for fun.**
 
+`Gitbook` 地址:[gitbook-4fun](https://legacy.gitbook.com/book/cs12110/4fun/details)
+
 ## 1. 说明
 
 为了能锻炼自己的英语阅读能力和增长见闻,这个项目主要用来收集各种各样自己喜欢的故事.
