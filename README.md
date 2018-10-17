@@ -1,6 +1,8 @@
-# stories-box
+# 4fun
 
 **Collecting stories from anywhere.**
+
+**Just for fun.**
 
 ## 1. 说明
 
