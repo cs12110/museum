@@ -866,3 +866,41 @@ Talk of double life..
 The reason for going anonymous is obvious.
 
 > 为什么匿名还不显而易见吗?
+
+## 作为作家是怎样的感受?
+
+From:&nbsp; [What is it like to be a writer?](http://qr.ae/TUGqcr)
+
+Date: October 18 2018
+
+Almost every movie has a scene like this.
+
+> 差不多每一部电影都有这样子的场景.
+
+A couple, kissing under the doorframe. He fumbles with the keys. They trip inside, grope as they push against the entrance wall.
+
+> 一对狗男女,在门外虐狗.然后 ta 掏出钥匙.然后跑到屋子里面,在入口的墙上壁咚.
+
+They jostle around. He spots the dining room table. It is covered in piles of stuff.
+
+> 他们游走在各处.他看见了厨房里面的桌子.那上面只有一点其他的东西.
+
+He releases her, turns around, leans both his forearms on the table and sweeps everything to the floor, everything, then sets her down on the now cleared, spacious surface.
+
+> 他们宽衣解带,来来去去,把桌子上的东西都推到地上,所有的东西,然后把 ta 放到干净的桌子上.(汉尼拔会心一笑)
+
+Writing carries this same urgency.
+
+> 写作也是这么急的一件事.
+
+Excuse me - I have to go. Just let me go. My brain has been trying to articulate this thought, is starting to organize it. I just need to put it down, to pin it, fast. I don’t want to lose it. If I do, it will be gone forever.
+
+> 窝草-我要走了.真的要走了.我脑子里面开始有灵感了,而且越来越清晰了.我只需要把 ta 记录下来,标记出来.快点.我不想丢掉这个灵感.如果我丢掉了,就永远的失去了.
+
+I look for a space, a surface, privacy, silence, shush, go away, everyone go away, and spot a table covered in stuff and lean my forearms down and sweep it clean.
+
+> 我寻找一个安静而又不显眼的地方,shh,都走开,都走开,然后看见一张上面只有一点东西的桌子,然后我把上面的东西清理干净.
+
+I pull out a notebook or a napkin or a crayon or my computer and sit down and oh my god finally. I write.
+
+> 我拿出一个本子或者一张纸巾,或者蜡笔或者我的电脑,坐下来,最后,我终于要写一点东西了.
