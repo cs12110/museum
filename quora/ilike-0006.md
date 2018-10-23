@@ -867,7 +867,7 @@ The reason for going anonymous is obvious.
 
 > 为什么匿名还不显而易见吗?
 
-## 作为作家是怎样的感受?
+## 作家是什么体验?
 
 From:&nbsp; [What is it like to be a writer?](http://qr.ae/TUGqcr)
 
@@ -904,3 +904,137 @@ I look for a space, a surface, privacy, silence, shush, go away, everyone go awa
 I pull out a notebook or a napkin or a crayon or my computer and sit down and oh my god finally. I write.
 
 > 我拿出一个本子或者一张纸巾,或者蜡笔或者我的电脑,坐下来,最后,我终于要写一点东西了.
+
+## 怎样会毁掉自己的职业生涯?
+
+From:&nbsp; [What thing secretly destroys people's career?](http://qr.ae/TUG69a)
+
+Date: October 18 2018
+
+Coasting.
+
+> 划水.(混日子)
+
+Once you've been in a job for a couple years, you're likely to reach a position where you can do the job with ease. You know all the right people, all the tools and technology, all the tricks. You've seen all the problems before. You can work without having to work. It's a great deal.
+
+> 一旦在一个职位里面待上许多年,你会找更简单去处理那些事的方法,所有的工具和技术都是你熟悉,还有你知道所有的坑.你在之前就看过这些问题了.你可以不用动手都解决了问题.这也是很好的一个方面.
+
+Until it isn't. You get passed over for promotion in favor of someone with better “trajectory”. You try to find another job, but you don't know the technologies they're looking for. When you do get an interview, they ask you about situations you've never faced, things someone else always took care of. Eventually you settle for a position with lower pay at a crappy company. And you swear never to coast again.
+
+> 但其实并不是的.你升职被别人有更好的`表现`而否决的时候.你想找另一份工作,但你不知道 ta 们现在需要什么样的技术.当你得到一个面试的时候,ta 们问一些你没看过的问题但其他人一直在处理的问题.最后你找到一份工资更低的外包公司.然后你才发誓你不会再划水了.
+
+As soon as your job seems easy, find a way to make it harder or find a new one.
+
+> 一旦你的工作变简单了,找一个让 ta 变难的方法,或者跳槽吧.(生于忧患)
+
+## 你想说什么?
+
+From:&nbsp; [What is something that needs to be said?](http://qr.ae/TUGQ8A)
+
+Date: October 22 2018
+
+I saw a video about a prostitute on YouTube, she told that she wanted money and so she got into it and now she can't come out of it because if she joins a new job there is someone there who knows about her and the people are no more seeing her as a women but a prostitute.
+
+> 我在 you2 上看到一个关于性工作者的视频,她说她想要钱,所以她进入了那个行业,但现在她出不来了,因为她找到了一份新工作,而那里有人知道她是性工作者,然后那些人就不当她是一个女人,而是一个妓女了.
+
+Some people come to interview her, like that one day a guy came to interview her and asked so many questions about her job and rate and everything and his last question was if she was free that night.
+
+> 一些人来询问她,就像有一天有一个男的来询问她,问了她关于工作的很多问题,等级和其他的一些东西,而他的最后一个问题是她今晚有没有空.
+
+She also said some people do it all night long and it's paining, some people just want to see her naked and one time she was just seen naked for 6 hours and that's not a easy thing for a girl.
+
+> 她还说一些人可以一整晚都在问这些东西,这让她很痛苦,一些人仅仅想看见她的裸体,有一次她 6 个小时都在裸着,这对一个女孩子来说,怎么都是一件不容易的事.
+
+She said that was just her profession, she had started it and now even if she wanted to end it, she couldn't because of the society. End of the day everyone want money.
+
+> 她说着仅仅是她的职业而已,她开始了,而现在尽管她想结束那样子的生活,但因为现在的社会,她结束不了.最后,每个人都不是需要钱吗.
+
+The main thing that got my attention was the comments of some MEN. They told "They knew respectful women who work hard to earn that 5000 rs. However you justify this, this is very wrong. There are 1000 ways to earn money, only shameless person will sleep with 1000 people".
+
+> 引起我的主意的是一些来自 Men 的评论. ta 们说"ta 们知道怎么尊重一个通过努力工作赚取 5000rs 的女孩子.不论你怎么证明你自己,你都是错的.那本来就有很多的方式去赚钱,而只有毫无羞耻的才会去做性工作者"
+
+I just have one question, are those 1000 people not shameless? They pay for it, so is it not wrong? If what that women does is wrong then what about the other person? Why is no one talking bad about them?
+
+> 我只有一个问题,那 1000 个人就没错?ta 们为这个付款,所以这就没错?如果女孩做这个是错的,那些人呢?那为什么不喷 ta 们?
+
+Even after having so many prostitutes in this country, people are so shameless and they rape women, children and even a goat. Imagine if there is no prostitution what will happen to this country! Products increase only based on the demand in the first place right?
+
+> 尽管在这个国家有那么多的性工作者了,男的还是那么无耻,他们还是会强奸妇女,儿童,甚至山羊(窝草,这是什么情况).想象一下如果没有这些性工作者会发生什么事.最初,都是需求决定生成的,对吧?
+
+I am not trying to justify her but I just wanted to say that even the person who pays for it also does the same mistake, then why is the prostitute alone facing problems and getting all the hate?
+
+> 我不是去为她证明什么,我只是想说即使那些嫖客也一样是错的,那为什么仅仅有性工作面临这些问题和所有的憎恨?
+
+## 在生活里面,你很久才领悟到的是什么?
+
+From:&nbsp; [What did you learn too late in life?](http://qr.ae/TUGdjY)
+
+Date: October 22 2018
+
+Love is a transient feeling. It fades with time and mood.
+
+> 爱情只是短暂的感觉.随着心情和时间而消逝.
+
+Your problems are gossip and “timepass” for EVERYONE even your bestfriend. The only people who actually care are your parents. No one else. Not even your siblings. Eg. If you fail an exam, your relatives may only sympathize with you, your parents are the ones who will actually face headache and look for solutions.
+
+> 你的问题被每一个当做笑料,即使是你的好朋友.那些真正在意你的只有你的父母了.没有其他人了.即使是你的兄弟姐妹.例如,如果你在一场考试失败了,你的亲属只会同情一下你,然而你的父母才是为你头疼,同时去寻求解决方法的人.
+
+The key to happiness is acceptance. If your girlfriend or boyfriend dumped you or cheated on you, accept it wasn’t meant to be. Accept that someone more worthy is meant to be in your life. Pity them and move on.
+
+> 接受才是通往幸福之路的 BMW.如果你的男朋友或者女朋友劈腿或者出轨了,接受 ta 而不是指这件事就该发生.接受其他人比 ta 在你生命里面有着更重的分量.可怜一下前任,然后头也不回的走了.
+
+Bad terrifying breakups are a blessing. You will ONLY realise it after couple of years of having broken up with someone you really loved. Breakups change your whole perspective and make you mature.
+
+> 一哭二闹三上吊的分手是件好事.你会在多年以后才会发现你和你真正喜欢的人分手了.分手改变了你人生观同时让你成熟一点.
+
+Sex is a mere act. Its highly overrated and has 0 significance. Its hyped for no reason. Sex has nothing to do with love. Having sex doesn’t guarantee a long lasting relationship. Its just an act.
+
+> 性只是一部分.被高估和没有一点意义的.有些时候就发生了,没有任何缘故.sex 和 love 是不同的.有 sex 不代表能得到一段长久的陪伴.sex 仅仅是 sex.
+
+There is nothing wrong. There is nothing right. There are only consequences.
+
+> 没有错,没有对,发生就是发生了.
+
+Life is about perspective. As i said theres nothing wrong and theres nothing right. Eg. You tell a pornstar having sex is wrong, he or she will laugh at you. You tell a soldier killing people is wrong, he won’t give a shit about your opinion. Everyone functions as per their own perspective.
+
+> 生活是关于个人观点的.就像我说的没有对和错的.比如你告诉色情明星性交是错的,ta 们会冷冷一笑的.你告诉士兵杀人是不对的,ta 连鸟都懒得鸟你.每个人的行动都建立在自己的个人观点的.
+
+The main cause of misery in life is having association with negative people.if you are surrounded with positive and like minded people the chances of you being depressed reduces exponentially.
+
+> 生活最大的悲惨就是和负面的人有关联.如果你周围都是那些积极的人(传销?)然后
+
+Life begins after no contact. If you are dealing with someone toxic(eg. Ex gf/bf)
+
+> 生活是从失去交集开始的.如果你当时的交集是有毒的人的话.
+
+Being friends with an ex who dumped you will only cause more pain. Cause the day they get a new partner,guess what,they will dump you again. That will hurt more.
+
+> 做前任的朋友会让你更加痛苦.因为 ta 们有新的另一半的时候,ta 们会再次抛弃你.这会让伤害扩大.
+
+As Conor McGregor says - “theres no talent here. Iam obsessed”. if you think of it,work for it,dream about it,talk about it, do everything based on that 1 thing you want - the universe will make sure you get it. Feel it in your blood. Without saying , work your ass off towards it.
+
+> 就像 Conor Mcgregor 说的那样-"轮不到天赋,我只是更专注而已"--如果你思考 ta,努力去解决 ta,连睡觉都想着 ta,谈话都带着 ta,做任何事都是基于你想要的那件事上-整个宇宙都会给你让路的.沉默的热血着,
+
+Donot COMMITT to any guy or girl till the age of 24 minimum. Be loyal ofcourse but dont committ. Choices change as you mature.
+
+> 在你 24 之前不要认定谁是你的 value(单身狗凄然一笑).忠诚但不认定.选择让你成熟(窝草,就是那句选择比努力更重要了???).
+
+If you are going through a rough patch, keep reiterrating to yourself that everything happens for the best and you will grow stronger due to this experience.
+
+> 如果你现在过得很艰难,保持继续尝试,然后就会发生好事了,在这次之后你也会变得更强一点.
+
+Time heals EVERYTHING, but only if you let it. So when something bad happens, be optimistic about the future.
+
+> 时间会治愈任何的东西,如果你允许的话.如果一些坏事发生了,对未来要乐观一点.
+
+With most emotional bonds which dont work out. Strange fact: you start off as strangers and you end up being strangers.
+
+> 大多数的关系都没能维持下来.奇怪的是: 开始是陌生人,最后还是陌生人.
+
+Thank You. Do give a upvote if you feel reading this was worth your time! It encourages writers to write more and often.
+
+> 谢谢.如果你觉得这没浪费你的时间阅读,点赞一下.这会鼓励作者写更多的东西.
+
+Have a great day:)
+
+> 今天你不写 bug. :"}
