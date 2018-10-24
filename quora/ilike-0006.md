@@ -1038,3 +1038,31 @@ Thank You. Do give a upvote if you feel reading this was worth your time! It enc
 Have a great day:)
 
 > 今天你不写 bug. :"}
+
+## 什么让你翻白眼?
+
+From:&nbsp; [What is something that makes you roll your eyes?](http://qr.ae/TUG03b)
+
+Date: October 22 2018
+
+Person A: It’s impossible to have a conversation without you trying to turn it into an argument.
+Person B: Well I’m an Aries and that’s just how we are. You’re going to have to deal with it.
+
+> A: 有可能和你讨论,而不是争吵吗?
+> B: 好吧,我可是射手座呀,这就是我们这个星座的人.你必须要忍受的.(我 tmd 还是摔桌子座的)
+
+Person A: You never showed up last night. It would have been nice of you to let us know you weren’t going to make it.
+Person B: Well I’m a Libra and Libras are really flakey. You should have expected that.
+
+> A: 你昨晚没来.如果你能通知一下我们也好呀,但是并没有.
+> B: 好吧,我是天秤座的,天秤座的都不讲信用的呀.你应该知道这个吧.
+
+Person A: We ordered our food 5 minutes ago. You have to give them time to cook it.
+Person B: That’s just part of being a Leo. We’re very impatient people.
+
+> A: 我们才点餐 5 分钟而已.你应该给点时间人家晒一下吧.
+> B: 这就是狮子座的一部分,我们很没耐心.
+
+I absolutely hate when people try to use their Zodiac sign as a way to excuse their negative characteristics.
+
+> 我绝壁讨厌哪种用星座来掩护性格缺点的人.
