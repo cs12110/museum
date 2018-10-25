@@ -969,7 +969,7 @@ I am not trying to justify her but I just wanted to say that even the person who
 
 From:&nbsp; [What did you learn too late in life?](http://qr.ae/TUGdjY)
 
-Date: October 22 2018
+Date: October 23 2018
 
 Love is a transient feeling. It fades with time and mood.
 
@@ -1043,7 +1043,7 @@ Have a great day:)
 
 From:&nbsp; [What is something that makes you roll your eyes?](http://qr.ae/TUG03b)
 
-Date: October 22 2018
+Date: October 24 2018
 
 Person A: It’s impossible to have a conversation without you trying to turn it into an argument.
 Person B: Well I’m an Aries and that’s just how we are. You’re going to have to deal with it.
@@ -1066,3 +1066,113 @@ Person B: That’s just part of being a Leo. We’re very impatient people.
 I absolutely hate when people try to use their Zodiac sign as a way to excuse their negative characteristics.
 
 > 我绝壁讨厌哪种用星座来掩护性格缺点的人.
+
+## 为什么我们这一代人这么不开心?
+
+From:&nbsp; [Why is our generation so unhappy?](http://qr.ae/TUhX6r)
+
+Date: October 25 2018
+
+This is a real, unaltered, photograph of my face as I write this answer. What do you see?
+
+> (一张作者的素颜自拍在上面)这是一张真实的,没经过修改的,在我写这个答案时候的自拍.你看见了什么?
+
+I see the deep bags under my eyes - I haven't slept well in months, not since class started again. My face is pale, my skin dull. My hair, which I normally painstakingly take care of, is pulled back in low pony. I can’t remember if I brushed it today. My eyes do not radiate with life - in short, I look exhausted.
+
+> 我看见眼睛下面有着大大的眼袋-我上一个月都没有睡好,自从开学以来.脸色苍白,肤色枯黄.头发通常是我费心思照料的,现在也变短了.我都忘记了我今天是否刷过牙(不至于吧,阿姨.jpg).我的眼睛没有交点 - 总的来说,我看起来精疲力尽.
+
+I'm in my third year of my degree, and I'm feeling the strain and pressure. My body is tired after nearly three straight years of gruelling coursework. My mind is slow, it's hard. I call my parents for support. I tell them how I'm feeling. My mom provides this sentiment:
+
+> 我现在是大三了,而我感到纠结和压力.我的身体在课程三年的折磨依赖已经疲倦了.思考迟钝,这些都太难了.我打电话给我的爸妈,寻找安慰.我告诉他们我的感受.我妈就说出这个东西:
+
+“One day, you'll be able to have a house and a family and this will all be worth it! You won't have to worry anymore!”
+
+> "某天,你会拥有自己的家庭和房子的时候,这些都值得了!你就不会再担忧这些东西了."
+
+I politely accept her answers, tell her I love her, and hang up. Then I throw my head in my hands and cry.
+
+> 我很礼貌的接受 ta 们给出的答案,告诉她我爱她,挂掉了电话.然后掩面而泣.
+
+With my generation, there are no guarantees.
+
+> 在我们这一代,什么都没保证的.
+
+I would, honestly, love to be able to afford a little house. A car. Share it with someone I care about. Maybe have a dog, work at a job I can, at the very least, tolerate.
+
+> 我应该,实话实说,愿意去为一间小房子努力.一辆车啦.和自己在乎的人分享这些东西.或许还能养一条狗,在一个力所能及的岗位工作,至少得忍受着.
+
+Put food on the table and clothes on my back. Maybe, once every two years or so, take a vacation to some place new, and when the time is right, start a family.
+
+> 把食物扔到桌子上,衣服挂在身后.或许,没隔着两年,我可以去一些新的地方看看,等时间合适了,就开始组建自己的家庭.
+
+This is the life I'm supposed to earn in obtaining a STEM degree. A life of comfort - not an extravagant, jet-setting life - but a life where I don't have to worry about tomorrow.
+
+> 如果我能得到学位证的话,这应该就是我的生活了.一个简单舒适的生活-不是奢侈,快节奏的生活-但是我不用为明天担忧的生活.
+
+I'm not even guaranteed to get a job when I'm done my degree.
+
+> 我甚至在我毕业之后,可能会失业.
+
+It is one thing to push a boulder up a hill for four years, to be rewarded with it rolling down the far slope once you reach the peak. It is entirely another to push a boulder up a hill for four years only to have it roll back over you.
+
+> 这就是我四年来一直往山上推的那块巨石了,你一旦到了山顶,作为奖励 ta 又滚回了山脚去.这就是你辛辛苦苦推了四年的石头,仅仅是为了让 ta 重新滚回山脚下去.
+
+I try to explain this to my parents when I can, but they don't understand. I don't blame them. It's a horrible truth that too many people refuse to swallow.
+
+> 我在合适的时候尝试去向我的父母解释,但 ta 们都不理解.我不怪 ta 们.这是很多人都拒绝承认的东西.
+
+That's why my generation is so unhappy. When I talk to my friends - other 20 something's, just struggling to survive - it's always the same.
+
+> 这就是我们这一代人为什么不开心了.当我和我朋友说这些- 其他 20 件事,都挣扎在温饱上面-一直都是.
+
+“I think one day, I'd like to have an apartment to call my own. I'll rent it, obviously, because who the hell can afford to actually purchase a house? I'll take the bus to work, cars are too expensive. Maybe, if I'm lucky, I'll think about getting a dog, if I can afford it.”
+
+> "我想有一天,我喜欢有一间属于我自己的公寓.我会租下来,因为谁 tmd 能够买下来呀?我会搭公交去上班,车太贵了.或许,如果我比较幸运的话,我会想一下养一条狗,如果我能够养得起的话.(我也养不起)"
+
+That's what life is reduced to.
+
+> 这就是我们缩减之后的生活了.
+
+I have friends who, would, when they're older, love to have a family. My best friend would want two kids. You know what she told me?
+
+> 我有一些朋友,ta 们愿意在年龄老一点的时候组建一个家庭.我的好朋友还想有两个小屁孩.你知道 ta 告诉我什么了吗?
+
+“Of course I'd love a family one day. But I'll never be able to have it. Kids need food, time, and toys. They need to feel safe. But even with my income, and the income of my partner, we'd never be able to pay for school, and a car, and a house! A life of penny pinching is not what I want for my kids.”
+
+> "我当然喜欢组建自己的家庭了,在未来.但我永远也不能有自己的家庭.小屁孩需要食物,时间还有玩具.ta 们需要安全感.但在我的收入里面,和在我爸妈的收入里面,我们从来交不起学费,一辆车,和一间房子.一个贫穷的家庭不是我想留给我的小屁孩的."
+
+It broke my heart.
+
+> 我心都碎了.
+
+We're sad because we will never be able to afford the lives of our parents. We're sad because we see what's coming - the planet is dying, rich assholes are being elected president, people are being murdered - the world is so hard.
+
+> 我们难过是因为我们不能像我们的父辈那样子活着.我们难过是看见什么在发生-这个星系正在死亡,有钱人当总统,没钱的被谋杀-这世界太 tm 难了.
+
+And nothing is guaranteed.
+
+> 记得,没有理所当然.
+
+Edit
+
+> 更新
+
+I wasn't anticipating a response like this! Wow.
+
+> 我没期待会有这样子的反映.Wow!
+
+To add a few details:
+
+> 加一些小小的详情:
+
+I'm Canadian, not American. I recognize this means I have some advantages over Americans (healthcare, mostly). Doesn't mean life doesn't have it's difficulties!
+
+> 我是加拿大人,不是美国人.我承认我们有一些比美国人好的地方(医疗啦,大部分),也不意味着生活好过一点.
+
+In no way am I advocating “giving up”. I'm still busting my butt everyday. I am, however, pointing out the flaws with the current system.
+
+> 我从来没提倡过放弃.我依然每天屁颠屁颠的奋斗着.我只是指出了现在这个系统的 bug.
+
+I do not expect life to just become “easy” after getting a STEM degree. I'm no more or less entitled to opportunities than anyone else. You know what would be nice? To be able to get a job in my field after getting a STEM degree.
+
+> 我没期盼我的生活在拿到学位证之后会变得轻松一点.我没有比别人有更多或更少的权力.你知道最好的结果是什么吗?在拿到学位证之后,在我自己的专业里面找到一份工作.
