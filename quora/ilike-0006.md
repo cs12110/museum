@@ -1176,3 +1176,41 @@ In no way am I advocating “giving up”. I'm still busting my butt everyday. I
 I do not expect life to just become “easy” after getting a STEM degree. I'm no more or less entitled to opportunities than anyone else. You know what would be nice? To be able to get a job in my field after getting a STEM degree.
 
 > 我没期盼我的生活在拿到学位证之后会变得轻松一点.我没有比别人有更多或更少的权力.你知道最好的结果是什么吗?在拿到学位证之后,在我自己的专业里面找到一份工作.
+
+## 暗恋为什么那么难提现?
+
+From:&nbsp; [Why is it so hard to tell another person you love them?](http://qr.ae/TUhRlI)
+
+Date: October 26 2018
+
+There’s a boy I love at school.
+
+> 在那个遥远的地方里面,有一间学校,那里有一个我喜欢的人.
+
+He’s my favorite friend. We joke around a lot, and we’ve been friends for so long, that we know each other. We understand each other in a way. We’re really comfortable with each other.
+
+> ta 是我最喜欢的朋友呀.我们相互开着玩笑,我们做了好久,好久的朋友了,从认识彼此依赖.我们能知道对方的想法.我们相处得很舒服.
+
+He’s a good-looking, nice, smart guy. We won’t ever date because we know how romance breaks friendships, but he’s definitely boyfriend material.
+
+> ta 很好看啦,人很好啦,又聪明喔.我们从来没有约会过,因为我们知道爱情和友情只能二选一,但 ta 觉得是另一半的好材料.
+
+In the purest, most platonic sense of the word, I love him.
+
+> 用柏拉图式的方式,我喜欢着 ta.
+
+I don’t just like him. I love him. I love how he’s always so kind to me. I love how he’s always honest. I love how he’s respectful to everyone. I love how he jokes around with me.
+
+> 我不止喜欢 ta 呀,我想是爱吧.我喜欢 ta 一直对我那么好.我喜欢 ta 一直那么实诚.我喜欢 ta 尊敬每一个人.我喜欢 ta 逗我笑啦.
+
+But love has too deep, too significant of a connotation.
+
+> 但爱太深了,太多含蓄的暧昧了.
+
+If I tell him that I love him, I’m showing him just how much I appreciate him in my life—and he might not feel the same for me. He would find it awkward. It might make me lose the friendship that’s so important for me.
+
+> 如果我告诉 ta,我喜欢 ta,我会告诉 ta 我多么感谢 ta 出现我的生命里面.但 ta 可能并不这么认为.ta 可能会感到尴尬啦.这么让我丢掉这份对我至关重要的友谊.
+
+Sometimes, the stakes are too high for me to tell the people I love what I truly feel about them.
+
+> 某些时候,告诉那些喜欢的人自己的真实感受,要付出很大的代价.
