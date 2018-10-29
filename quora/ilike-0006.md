@@ -1214,3 +1214,53 @@ If I tell him that I love him, I’m showing him just how much I appreciate him 
 Sometimes, the stakes are too high for me to tell the people I love what I truly feel about them.
 
 > 某些时候,告诉那些喜欢的人自己的真实感受,要付出很大的代价.
+
+## 你最后悔的是什么?
+
+From:&nbsp; [What is your biggest mistake or regret?](http://qr.ae/TUhI3Z)
+
+Date: October 26 2018
+
+Personal incident,hence going anonymous.
+
+> 私人事件,所以匿名了.
+
+Indian married girl here. I’ve been married for 4 years. I had problems conceiving as I have pcod. I kept going to hospitals, taking medicines over medicines. Everytime I miss a period I would take a test and it will come out negative. I also had to face these weird people who kept asking me questions like “Any good news?” or “Are you taking treatments? You should go to this doctor” or “Did you get your husband checked?”. I really wanted to slap them. This made me even more stressful and I stopped going to family functions. My husband and In laws were very supportive. This repeated for about 3 years, after which I decided to stop taking treatment.
+
+> 我是一个结婚了 4 年的印度女人.我患有怀孕上面的一些疾病.我一直都有去医院就医,吃了一堆有一堆的药.每一次没来月经的时候,我都会去测试一下是不是怀孕了,但都没有.同时我还要面对那些无关紧要的人问来问去的问题,如"有什么好消息没?"或者"你正在治疗吗?你应该去这个医生那里"或者"是不是你老公的问题?".我真的很想一巴掌盖过去.这让我更加焦虑,同时我不再去家庭聚会什么的了.我老公和家里面都很支持我.就这样过去了 3 年,我决定放弃治疗了.
+
+About six months later, I got a positive result. I can't tell how happy I was. My husband and I started crying.. I happily went for scans and check ups and everything was normal. My baby and I were healthy. My husband did not want me to go to my mom’s place, as he wanted to take care of me. So I stayed here.
+
+> 在 6 个月后,我检查的时候,发现怀孕了.我不能告诉你我是多少的开心.我老公和我都感动到哭了..我开心的去检查然后得到所有东西都是正常的结果.我的孩子和我都很健康.我老公不想我去我妈那边,他想由他来照顾我.所以我留在了这里.
+
+After about 20 weeks of pregnancy, my health started getting bad day by day. Eventhough the scans were normal, my doctor said that I might have to go for preterm labour if I get out of the bed even for a minute. I had to be in complete bed rest. 2 days after my doctor said this, I haid labour pain and I had to deliver my baby boy. I lost my baby. I literally prayed that I should die too.
+
+> 在怀孕 20 周后,我的健康情况日渐变坏.尽管 B 超是正常的,我医生告诉我如果我自己出去外边一分钟这个孩子都有可能会流产.我必须得在床上休息.在医生说这个 2 天后,我有了阵痛,所以我必须得引产我的孩子.我丢掉了我的孩子.我也想死了,那会.
+
+Mine was a normal delivery and my doctor performed d&c which made me very drowsy and tired. I was in a lot of pain and shock and I did not know what was going on. I was asked whether I want to see the baby. I was scared and confused, there were a ton of emotions going on inside my head that i said no. My husband and everybody else saw our baby, except me. After I got home, I couldn't believe that I actually said no. I wanted to see him, I wanted to hold him in my arms. I took the recent scan report and hugged tight. It has been a year now and i still see my baby in the scan, I kiss him and cry. I really can't forgive myself for what I did. Why didn't I see him? I hate myself for it. I kinda wanna die and go where my baby is.
+
+> 我做的正常引产,然后我的医生给我做了 d&c,然后感到疲倦和昏昏欲睡.我很痛也很震惊,我不知道事情现在发展得怎样子了.我被问到我是不是想去看看我的孩子.我很害怕和疑惑,在我脑海里面掺杂着很多的情感,所以我说不去看了.我老公和其他人都看过了孩子,除了我.在我回家之后,我不敢相信我没有去看我的孩子.我想去看 ta,我想抱一会 ta.我拿着最近的那份报告,搂在怀里面.就算现在过去了一年了,我还能在那里片子里面看见我的孩子,我吻了一下 ta,然后开始哭了.我真的不能原谅我自己不去看 ta.为什么我不去看 ta 呢?我恨我自己没做到.我想死然后去我孩子那边.(无神论表示同情,同时强烈不建议这么做)
+
+What broke me evenmore is that my doctor said that my baby was alive and healthy when he was born. He was alive for 10 minutes, gave a weak cry. And died afterwards. I was going through d&c at that time. I am totally broken. I really can't forgive myself. People have started their questions again. I feel really depressed.
+
+> 最让我心疼的就是那个医生说我的孩子在刚出来的时候还是健康的.ta 活了大概 10 分钟,轻轻的哭了一下.然后就离开了.那会我还在 d&c 里面.我心就像经过了碎纸机一样.我真的不能原谅我自己.那些人又开始问了.我感觉要忧郁了.
+
+P.s. If you are a girl reading this, please, never ask such questions to any girl. I beg you. You have no idea, it makes me want to kill myself. If there is some thing good, you’ll definitely come to know as it is not something which can be hidden. If you really care for them, pray for them. Stop asking such indecent questions no matter how close you are.
+
+> P.s 如果你是女孩子在看这个,请不要向任何一个女孩子问上面那些问题.我求你了.你不知道,你会让我想干掉我自己.如果有什么好消息的话,你一定会知道的而不会被隐藏起来.如果你真的关心 ta 们,就给 ta 们祈祷吧.无论你们多么亲近,也不要问这些问题.
+
+Did not mean to hurt anybody here. Wrote my heart out.
+
+> 不想伤害任何人,在这里.我把我的心投掏出来了.
+
+EDIT:
+
+> 更新:
+
+Thank you so much for all your wishes. I feel a bit lighter now. I felt really good after reading all the positive comments. I could only reply to a few, hence posting this edit here. Thank you once again, it means a lot to me, really..
+
+> 谢谢各位的祝福.我现在感到轻松了一点.我在看到那么多积极的留言后感觉变好了一点.但我只能回复少数的几个人,所以在这里说明一下.谢谢你们,这真的对我来说意味着很多东西.
+
+And many people suggested adopting. Except for pcod, I have no other problem. My doctor said I CAN have a baby again. All my reports are normal..
+
+> 很多人建议收养.除了 pcod,我没有其他的问题.我医生说我可以怀孕.我所有的检查都是正常的...
