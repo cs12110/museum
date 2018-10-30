@@ -1219,7 +1219,7 @@ Sometimes, the stakes are too high for me to tell the people I love what I truly
 
 From:&nbsp; [What is your biggest mistake or regret?](http://qr.ae/TUhI3Z)
 
-Date: October 26 2018
+Date: October 29 2018
 
 Personal incident,hence going anonymous.
 
@@ -1264,3 +1264,29 @@ Thank you so much for all your wishes. I feel a bit lighter now. I felt really g
 And many people suggested adopting. Except for pcod, I have no other problem. My doctor said I CAN have a baby again. All my reports are normal..
 
 > 很多人建议收养.除了 pcod,我没有其他的问题.我医生说我可以怀孕.我所有的检查都是正常的...
+
+## 爱能发电?
+
+From:&nbsp; [How does love change life?](https://qr.ae/TUhGfs)
+
+Date: October 30 2018
+
+I was a person who wanted to spent most of my time with my friends. When i was doing my engineering I saw this girl.she was from another branch. After 1 year she accepted my love and she meant the world for me. When she came to my life i had to split my time. At that time she was passing through her difficult times and she needed me very much. My friends also told me to spent more time with her because they knew her situation. As time passed the gap between me and my friends was increasing. I didnt realise that. I was not in their daily routines anymore.
+
+> 我遇到了一个愿意花大部分时间在我和我朋友上面.在我还是工程狗的时候,我看见了一个女孩子.ta 是其他专业的.在一年后 ta 接受我的表白,然后对我来说 ta 就是 c-137 了.当 ta 走进我的生活的时候,我必须分散我的时间.那么 ta 正在人生的低谷里面,需要我大量的陪伴.我朋友叫我花多点时间在 ta 身上,因为他们知道 ta 的情况.随着时间的增长,我和朋友之间的感情越来越疏离.我甚至都没意识到(你没那么重要,衣扬脸).我然后不在 ta 们的圈子里面了.
+
+By the time I was in 4th year she shifted to a new hostel and there she was having a good time with her friends. She got her old friends back at that time. She thought she shouldnt lose them once more. But I was too far from my friends. I had nothing to do because my friends were busy with their usual things ( hangouts and trips etc) . I felt like i was alone and i hoped if she was with me. Of ccourse she loved me but she was busy with her friends. In my mind it was like “I was there for her when she needed someone, but now she has no time to spend with me”.
+
+> 那会我大四,ta 和 ta 的朋友去一家新的酒店,并且过得挺好的.那会 ta 和 ta 的朋友重新关联了.ta 不想再次失去 ta 们了,但我 tmd 离我的朋友太远了.我一点东西也做不了,因为我的朋友太忙了(约会,旅行什么的).我感到了孤独,然后想 ta 陪在我身边.当然 ta 肯定是喜欢我的啦,但 ta 和 ta 的朋友忙得不可交加.在我心里就是"窝草,当时我花了那么多时间陪 ta,现在 ta 却一点时间也不花在我身上."
+
+There was some issues in our relationship later. Slowly our relationship broke up. I didnt know that we broke up for almost 1 year after college. I was thinking that she is not calling or texting me like before because she needed some space. I didnt bother her with anything.Later i knew that is in relationship with another guy.
+
+> 在后面,我们的感情出现了一些问题.然后我们分开了.我都不知道我们分开了,直到大学毕业的一年后.我当时还在想 ta 只是没给电话和信息我而已,因为 ta 想自己待着.我就不打搅 ta 了.后面我才知道 ta 已经和别人好上了.
+
+She is living happily and here i am, with none of my friends around me.
+
+> ta 过上了幸福的日子,而我在这里,没有一个朋友了.
+
+I was too depressed when i knew about it but now I enjoy being alone. It is too good to have no one that close. You dont have to give your time to nobody. You dont have to consider anyone before taking a decision. Once you enjoy being alone you’ll never want to go back.
+
+> 当我知道的时候,我恰如其分的忧郁了,现在我享受单身狗的生活.没一个人在周围也挺好的.你只要把时间给你自己就好.你在做决策的时候,不用考虑任何人.一旦你喜欢自己待了,你就回不去了.(我只看见了一堆借口的东西,不好意思)
