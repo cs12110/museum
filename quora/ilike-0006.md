@@ -1290,3 +1290,113 @@ She is living happily and here i am, with none of my friends around me.
 I was too depressed when i knew about it but now I enjoy being alone. It is too good to have no one that close. You dont have to give your time to nobody. You dont have to consider anyone before taking a decision. Once you enjoy being alone you’ll never want to go back.
 
 > 当我知道的时候,我恰如其分的忧郁了,现在我享受单身狗的生活.没一个人在周围也挺好的.你只要把时间给你自己就好.你在做决策的时候,不用考虑任何人.一旦你喜欢自己待了,你就回不去了.(我只看见了一堆借口的东西,不好意思)
+
+## 老师说了什么让你心碎?
+
+From:&nbsp; [What did a teacher say that broke your heart?](https://qr.ae/TUhnfE)
+
+Date: October 31 2018
+
+In fourth grade, we had a computer teacher (we’ll call her R). EVERYONE hated her, and I mean EVERYONE (the fourth grade actually started a petition to get her fired, she was THAT bad). She was mean, loud, always angry, and seemed to hate kids. Why she decided to be a teacher, I’ll never know why.
+
+> 在四年级的时候,我们有一个电脑老师(我们叫 ta 做 R 吧).每一个人都不喜欢 ta,我是说真的没有一个人喜欢 ta 的(四年级的甚至发动政变,想 ta 下台,ta 就是这么坏).ta 一直很坏,很大声,而且还经常生气啦,看起来还不喜欢小屁孩.为什么 ta 会成为一个老师,我永远也不知道为什么.
+
+We only had computers once a week on Wednesdays, and so I would always dread Wednesdays. I was a kid who always wanted to please people, I wanted everyone to accept me, but I suffered from epilepsy, and still suffer from ADHD and anxiety, so I wasn’t the best at listening, and needed to be told certain things a couple of times. Apparently, this made me R’s ‘problem child.’
+
+> 我们每周星期三有电脑课,而我的每个星期三都过得很惶恐.我是那种想去讨好别人的小屁孩,我希望每个人都和我玩啦,但我自己患有癫痫,还有少儿多动症和焦虑那些玩意,所以我一般都不能专心的听别人说话,一件事要被重复很多遍我才能听明白.这让我成为 R 眼里的沙子.
+
+Every week I did something wrong, whether it be I was a little more behind on work than the others (I go to special classes because I’m considered ‘a little slow’), I’d forget where a certain button was on the screen or keyboard, you get the idea. R was extremely annoyed with me, and it drove me insane that someone, especially an authority figure, didn’t like me!
+
+> 每一周我做错了一点什么东西,我的进度会比同学慢一点(因为我的进度,我甚至要去特殊的班级上课),我忘记那些在屏幕上的按钮和键盘之类的,你知道了吧.R 总是对我很不耐烦,这让我很烦,权威的老师怎么可以不喜欢我呀!
+
+So one day, after a few weeks of me seeming to screw everything up, I decided I was going to go one day, ONE day, without messing up AT ALL. Everything was going to be PERFECT. My focus was at 100%, I followed instructions perfectly, I copied exactly what R was showing us to do, I even wore a cute black polka dot dress that I thought she’d like!
+
+> 所以有一天,在几个星期后,看起来我把一切玩意都搞砸了,我决定还坚持一天,那一天,我一点也没忘记.所有的东西看起来都闪闪发光.我注意力很集中啦,我对那些指令都完美的执行了,我复制了那些 R 叫我们复制的东西,我甚至穿上了那件我以为 ta 会喜欢的斑点小黑裙.
+
+At the end of the class, I ran out of the computer lab cheering for myself in my head because everything had gone off without a hitch! Maybe I wasn't a giant nuisance after all, maybe R wouldn’t hate me anymore, maybe…
+
+> 在下课的时候,我走出电脑室,为我自己没搞砸任何东西而喝彩.或许我不是那些最惹人烦的那个人了,或许 R 不会讨厌我了,或许....
+
+Until…
+
+> 直到 .....
+
+“Kaitlyn, come back into the room please, you forgot to put your keyboard away.”
+
+> "Kaitlyn,回来一下教室,你没把你的键盘放好."
+
+Oh no.
+
+> 哎呀,窝草.
+
+Dread filled my little 10 year old stomach. I slunk back into her classroom, my heart pounding.
+
+> 恐惧填满了我那 10 周岁的肚子.我爬回去那教室里面,我心脏开始颤抖了.
+
+As I began to do the simple task of stacking my keyboard onto my monitor, R decided this would be the perfect opportunity to start bitching me out.
+
+> 在我开始把键盘放回去的简单的一件事的时候,R 认为那是一个恶心我的绝好机会.
+
+“This is every week for you.”
+
+> "你一定每个星期都这样"
+
+“Wh-what?”
+
+> "窝草?"
+
+“This. Is every week for you.”
+
+> "不放键盘回去.你一定每个星期都这样子."
+
+“I’m sorry, I just forgot to-“
+
+> "不好意思,我只是一时忘记了而已."
+
+“Why do you have such trouble following directions? All of your classmates can do the work perfectly!”
+
+> "为什么你听不懂人话呢?你的同学全都做得很好呀."
+
+“I just forgot, ok?”
+
+> "我只是忘记了,行不行?行不行?行不行?"
+
+As I tried to walk out of the classroom with a shred of dignity, R blocks my exit and starts YELLING.
+
+> 当我带着碎成一坨的尊严想离开教室的时候,R 把门堵住了,然后骂我了.
+
+“Do NOT walk away when I am speaking to you! You are the rudest, most incompetent child I have ever met! Apologize right now!”
+
+> "在我说话的时候,不要走开.你 tmd 是学生,一件不如一届.现在给我个 jb 道歉"
+
+At this point I was standing there crying, cowering. “I’m s-sorry!”
+
+> 那会我站在那里,哭着说:"不好意思!"
+
+“You better be! I’ve had you in my class all year, and I can tell you, you’re nothing but a bitch, you’re never going to amount to anything because you can’t follow simple instructions, and even the simplest of tasks seem to be too difficult for you to handle!”
+
+> "你最好是不好意思.我这一年都在留意你,我可以告诉你,你就是个渣渣,你不可能有所成就的,因为你连最简单的指示都做不到,连一件最简单的事,你看起来都做不好."
+
+This. Teacher. Called. A 10 Year Old. A bitch.
+
+> 嗯,就是 ta,叫一个 10 岁的孩子做:bitch.
+
+At this point my polka dotted dress which previously held so much hope was now soaked with tears. I was bawling my eyes out and shivering under the cold glare of R.
+
+> 在之前我还想我的小裙子是如何的荣光,但最后却只能用来抹眼泪.我把我眼睛都哭出来了,在 R 的冷眼里面瑟瑟发抖.
+
+She pointed towards the door. “Get back to class!”
+
+> ta 指着门口."现在你可以滚了."
+
+I ran out of her room, crying hysterically. All my classmates saw my tear stained face and instantly knew what was up.
+
+> 我走出那个教室,哭的一塌糊涂.我所有的同学都看见我哭了,然后立刻知道发生了什么事.
+
+I never wore that polka dotted dress again, but the good news is: I’m now only 16 and self employed, but R got fired from the school after that year!
+
+> 我再也没穿那条小裙子了,但好消息是:我现在 16 了,而且找到了一份工作,而 R 在那一年后就被炒了.
+
+How’s THAT for never amounting to anything, R?
+
+> 那说好我一事无成的呢,R?
