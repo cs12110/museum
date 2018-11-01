@@ -1400,3 +1400,49 @@ I never wore that polka dotted dress again, but the good news is: I’m now only
 How’s THAT for never amounting to anything, R?
 
 > 那说好我一事无成的呢,R?
+
+## 在哈佛里面遇见马特达蒙是怎样的感觉?
+
+From:&nbsp; [What was it like to be at Harvard with Matt Damon?](https://qr.ae/TUhru2)
+
+Date: November 01 2018
+
+As a Harvard undergrad I took a Spanish class -- "Spanish CD: Oral Survival" -- with Matt. We called him 'Mateo.' I was two years older than he was, and didn't know him well, but it was a small class, and he was friendly. (Many others knew him much better, of course, but none of them has answered this yet, so for now you'll have to settle for me.)
+
+> 在大学的时候,我上一门西班牙课程--"西班牙 CD:幸存的口语"--和马特达蒙.我们叫 ta'Mateo'.我比 ta 都还年长两岁,而且对 ta 不太了解,但那里是一个不大的班级,ta 也很友好.(其他的很多人都很了解 ta,当然,但 ta 们现在都还没回答这个问题,所以你现在只能看我的回复了.)
+
+A few months after the class ended, in the spring, I came out of an underground record store and ran into him outside Lowell House, a dorm. I asked him how things were going, and he said, "Really well, man. Really well."
+
+> 在这门课程结束的几个月后,在春天里面,我从学生成绩办公室走到 ta 那里,外边的 Lowell House 一个宿舍里面.我问 ta 过得怎么样了,ta 说,"I'm fine ,真的 fine."
+
+"Is that right?" I said. "That's great. In what way?"
+
+> "是真的吗?"我说."那就好,好在哪里呀?"
+
+"My agent got me a gig at HBO. Things are really starting to happen for me."
+
+> "我的经纪人给我在 HBO 拿到了片约.现在这些终于轮到我了."
+
+"Really? A gig as an actor?"
+
+> "真的?一个演员的片约?"
+
+"Yeah," he said.
+
+> "是的,"ta 说.
+
+"Wow. That's great. I didn't even realize that you acted." I knew a lot of student actors and directors, but not all, of course. "That's terrific, Matt. Wow."
+
+> "Wow,这就牛掰了.我甚至都不知道你会演戏呀."我知道很多的学生演员和导演,但不是当然全部都知道."哈,真很好呀,Matt."
+
+"Yeah, man. Things are really starting to happen," he said again. He looked away a bit, as if he could see a golden future beckoning.
+
+> "是的,man,终于轮到我了,"ta 又说了一次.ta 看了周围一下,就像 ta 可以看见金黄色的未来一样.
+
+Some years later I took a date to a movie. One of the previews was for "School Ties." When I saw his magnified face on the big screen I felt electrified: "I know that guy!" It took me a minute to remember that it was Mateo from Spanish class. Things really were starting to happen. And then came "Good Will Hunting," and so much more.
+
+> 一些年后,我和别人约在电影院里面.一些预告是说这个是关于学校的.当我看到 ta 那张夸张的脸的时候,我感觉被电了一下:"我认识这个人呀!"然后我花了一分钟才想起这个就是西班牙课程里面的 Mateo 呀.终于轮到 ta 了.然后成了"打猎愉快",然后比这个更多.
+
+Matt knew what he wanted, worked hard for it, and got it. Good for him.
+
+> Matt 知道 ta 想要什么,而且为之努力,然后坐到了.真厉害呀.
