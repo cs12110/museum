@@ -1446,3 +1446,57 @@ Some years later I took a date to a movie. One of the previews was for "School T
 Matt knew what he wanted, worked hard for it, and got it. Good for him.
 
 > Matt 知道 ta 想要什么,而且为之努力,然后坐到了.真厉害呀.
+
+## 为人父母
+
+From:&nbsp; [Would you give your life for your children?](https://qr.ae/TUhKMA)
+
+Date: November 02 2018
+
+A few weeks ago, my daughter found an old knife in the yard. Don’t ask me how it got there.
+
+> 几个星期前,我的小屁孩在院子里面找到了一把刀子.我也不知道怎么会有刀子在那的.
+
+Her small hands were clasping the knife as hard as they could as she ran to give it to me.
+
+> ta 的小手抓住那把小刀,然后跑着过来递给我.
+
+Just as my eyes made the connection to my brain, she tripped.
+
+> 就在我脑子反应过来我看到这种场景之后,ta 摔倒了.
+
+The knife was turned toward her little chest and I instinctively shoved my hand between the sharp point and her body in an attempt to block her from it.
+
+> 那把刀转向 ta 的胸口,我立刻把手隔在 ta 那锋利的刀子之间,尝试不让 ta 受伤害.
+
+Fortunately, she caught herself and nobody got hurt.
+
+> 幸运的是,ta 自己保护好了 ta 自己,没有人受伤.
+
+I cringe about how horrible that could have been. We had a reminder discussion about not handling/running with sharp objects.
+
+> 我对这件可能会产生最坏的结果的事而惊恐.我们之间达成了拿着尖锐的东西的时候,不能跑的协议.
+
+I think the day our children are born, parents are given the reflex of shielding them from harm at all costs—including the ultimate one.
+
+> 我想在小屁孩出生的那天起,父母就开始不惜一切代价保护 ta 们的孩子不受伤害了.
+
+My answer to this question is quite simple—
+
+> 对于这个问题,我的回答很简单-
+
+Without pause.
+
+> 没有停顿.
+
+Without hesitation.
+
+> 没有迟疑.
+
+Without a thought.
+
+> 没有考虑.
+
+My children’s lives will always be my priority.
+
+> ta 们的生命一直都是我的第一准则.
