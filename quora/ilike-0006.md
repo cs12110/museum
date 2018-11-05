@@ -1500,3 +1500,45 @@ Without a thought.
 My children’s lives will always be my priority.
 
 > ta 们的生命一直都是我的第一准则.
+
+## 你今天做了什么?
+
+From:&nbsp; [What did you do today?](https://qr.ae/TUhCMu)
+
+Date: November 05 2018
+
+10.5 Months Ago: I reached out to Becky Butz on Quora after she made a blog post about needing help with something.
+
+> 10.5 个月前:我在 Becky Butz 在 quora 上发了一篇 ta 需要帮助做什么东西,所以我去帮忙了.
+
+10 Months Ago: I took her out on our first date.
+
+> 10 个月前:我带她去了我们的第一次约会.
+
+9 Months Ago: We admitted we were both madly in love with each other. (although, if I’m being honest, I fell in love with her the second we started talking)
+
+> 9 个月前:我们承认我们之间都深爱的彼此.(尽管,坦白来说,我从一开始就喜欢 ta 了)
+
+3 Weeks Ago: I received some wise words of wisdom from my boss:
+
+“Things are good between you and Becky right now, but the distance, time away, and money it costs to see each other will drive you apart. Don’t miss out on a good thing because you were too scared to take it to the next level.”
+
+> 3 周前: 我从我那个睿智的老板里面得到了一些明智的建议:
+
+> 在你和 Becky 之间相处得很好,但是距离,时间,还有到两地之间去看彼此的费用会拉开你们的距离.不要因为你害怕进行到下一阶段而错过了一些事情.
+
+1 Week Ago: I went out and bought a ring.
+
+> 1 周前: 我带着戒指出去了.
+
+Today: I put that ring on her finger and asked her to marry me.
+
+> 今天: 我把戒指戴在了 ta 的手上,然后叫 ta 嫁给我.
+
+November of 2019. Mark your calendars.
+
+> 2019 年的 11 月,请标注在你的日历上.
+
+You guys think Quora will sponsor our wedding?
+
+> 你们觉得 Quora 会不会赞助我们的婚礼?
