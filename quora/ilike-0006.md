@@ -1542,3 +1542,21 @@ November of 2019. Mark your calendars.
 You guys think Quora will sponsor our wedding?
 
 > 你们觉得 Quora 会不会赞助我们的婚礼?
+
+## 盲人需要开灯吗?
+
+From:&nbsp; [Do blind people turn on lights in their house?](https://qr.ae/TUh8TI)
+
+Date: November 06 2018
+
+A few weeks ago, I was over at my (blind) boyfriend’s house and stumbled over a piece of furniture — again — which got on my last nerve. “Turn a light on, will you?” I said. “I can’t see in the dark the way you can!”
+
+> 几个星期前,我去到我那个失去视力的男朋友那里,然后绊倒了一些家具-然后又碰倒了-这让我提起了勇气."我可以打开灯没?"我说,"我不能像你那样子,在黑暗里面能感觉 ta 们的位置."
+
+It was only about the time that “okay” got out of my mouth that I realized what I had just said. He switched a lamp on for me, which is when I saw he was laughing hard enough he was nearly bent double. Cue a BIG sigh of relief from me. (Yes, I’m aware that you can use “see” and similar words with the blind, but I had just referred to him as being able to see, and that’s different.)
+
+> 在 ta 说"ok"的时候,我才意识到我说了什么.ta 打开了一盏台灯,我看见 ta 都像人格分离一样快笑傻了.这让我松了一口气.(是的,我知道你可以用"see"或者其他差不多的词和盲人交流,但我还把 ta 当做视力正常的人而已,这就是区别吧)
+
+He doesn’t turn lights on when sighted people are not there, mostly because they have a tendency to accidentally stay on for days afterward and that’s not good for power bills. But ever since then, we’ve had a running joke about the fact that I need assistive devices (i.e., lights) in order to function in his place. Who exactly is the “disabled” person again?
+
+> ta 在没有我们这种人的时候是不会开灯的,因为 ta 们可能忘记关灯什么的,对之后的那几天的电费可不好.但自从那会开始,我们开始拿我在 ta 的地方需要轮椅(灯光)来开玩笑了.现在谁才是残疾人?
