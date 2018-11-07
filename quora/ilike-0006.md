@@ -1560,3 +1560,31 @@ It was only about the time that “okay” got out of my mouth that I realized w
 He doesn’t turn lights on when sighted people are not there, mostly because they have a tendency to accidentally stay on for days afterward and that’s not good for power bills. But ever since then, we’ve had a running joke about the fact that I need assistive devices (i.e., lights) in order to function in his place. Who exactly is the “disabled” person again?
 
 > ta 在没有我们这种人的时候是不会开灯的,因为 ta 们可能忘记关灯什么的,对之后的那几天的电费可不好.但自从那会开始,我们开始拿我在 ta 的地方需要轮椅(灯光)来开玩笑了.现在谁才是残疾人?
+
+## 为什么有些聪明人没钱?
+
+From:&nbsp; [Why aren’t all smart people wealthy?](https://qr.ae/TUhPIA)
+
+Date: November 07 2018
+
+Being smart has nothing to do with being wealthy. Ironically, C students end up owning the companies where B students manage A students who do all the work. It is about drive, motivation and determination.
+
+> 智商和钱是不成正比的.通常在最后,60 分以下的学生开了一家公司,招了 70 分的学生做经理,然后把工作全都交给 90 分的学生做.这仅仅是自己的内心驱动,动机和决心造成的.
+
+## 火眼金睛
+
+From:&nbsp; [Your wife has been cloned 100 times. How do you know who is the real one?](https://qr.ae/TUhPIZ)
+
+Date: November 07 2018
+
+Oh, that’s easy.
+
+> 这还不简单.
+
+All but one of them will be telling me that I’m not doing what I’m supposed to be doing.
+
+> 在 ta 们之中肯定会有一个人告诉我不要做我现在要做的事.
+
+My wife will be frowning at the others, telling them that they’re doing it wrong.
+
+> 我老婆就会皱着眉头的告诉其他人,ta 们不是这么劝的(能打就别哔哔).
