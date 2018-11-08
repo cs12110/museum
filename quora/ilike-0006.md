@@ -1,6 +1,6 @@
 # Stories from Quora
 
-&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.如果侵犯了您的个人权益,请联系本人,本人立刻删除以及致歉.s
+&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.如果侵犯了您的个人权益,请联系本人,本人立刻删除以及致歉.
 
 &nbsp;&nbsp;由于本人英语水平较差,如果出现翻译错误或曲解原作者的翻译,请谅.
 
@@ -61,6 +61,8 @@ I still love that story!!
 
 > 我超喜欢这个故事的.
 
+---
+
 ## 生涯最尬时刻
 
 From:&nbsp; [What is your most embarrassing moment at school?](http://qr.ae/TUGt9E)
@@ -119,6 +121,8 @@ I can’t really blame her.
 
 > 我不能怪她,哈,哈,哈.
 
+---
+
 ## 人生最难放弃的是什么?
 
 From:&nbsp; [What's the hardest thing to give up in life?](http://qr.ae/TUGvU1)
@@ -152,6 +156,8 @@ She shakes her head. She does not want to hear me.
 The hardest thing to give up is the thing we have decided to believe.
 
 > 生命里,最难放弃的应该我们曾坚信的东西吧.
+
+---
 
 ## 来呀,相互变好呀.
 
@@ -198,6 +204,8 @@ It’s a simple thing, just a casual switch of words - but at the same time, it�
 Want to make the world a better place? Learn to turn problems into projects. It’s a simple way to start.
 
 > 想改变世界?学会把问题变成工程呀.这是一个简单的开头了.
+
+---
 
 ## 你是谁?
 
@@ -309,6 +317,8 @@ Thank you for reading.
 
 > 谢谢阅读.
 
+---
+
 ## 说过最蠢的话?
 
 From:&nbsp; [What is the dumbest thing you have ever said in your life?](http://qr.ae/TUGb02)
@@ -334,6 +344,8 @@ Little did I know that the janitor would have his job no matter what, and I was 
 Pick up your trash people. Don't be a dumbass like I was (am).
 
 > 捡起你的东西,垃圾.别像我一样.
+
+---
 
 ## 能孤独终老吗?
 
@@ -461,6 +473,8 @@ I’ve chosen mine.
 
 > 我选择我的.
 
+---
+
 ## 成功的最基础技巧是什么?
 
 From:&nbsp; [What is the most fundamental skill for success in life?](http://qr.ae/TUGWd1)
@@ -482,6 +496,8 @@ The author replied, “The application of the ass to the chair.”
 If you want to succeed in life, one of the most fundamental skills you’ll need is the discipline to make yourself sit down and work for it.
 
 > 如果你想要一个成功的人生,最基础的技巧就是你需要坐下来,并开始为之努力.
+
+---
 
 ## 为人父母,你不应该对小屁孩说什么?
 
@@ -593,6 +609,8 @@ I rest my case.
 
 > 我说完了.
 
+---
+
 ## 结婚后,ta 有什么改变了?
 
 From:&nbsp; [In what ways has your spouse changed after getting married?](http://qr.ae/TUGZXe)
@@ -654,6 +672,8 @@ As for the changes, she hasn't changed much. Can motherhood be included? Anyways
 She's staying at her parents place with our boy. I miss her. Its been just a day though. I guess, I'll call now.
 
 > 她现在和孩子待在她父母那边.我想她了,都已经去了一天了.我想,我现在该打电话给她了.
+
+---
 
 ## 英国首相牛逼,还是印度总理牛逼一点?
 
@@ -734,6 +754,8 @@ And that working on it one high five a time—
 Is not a bad way of tipping the scales.
 
 > 这对于减少善意的赤字也不是一个坏的方法.
+
+---
 
 ## 你被同性恋接触过吗?你是怎么应对 ta 们的?
 
@@ -837,6 +859,8 @@ I wish there were more people like him in this world.
 
 > 我希望在这个世界有更多的人喜欢他.
 
+---
+
 ## 你认识那些隐藏很深的人吗?
 
 From:&nbsp; [Have you ever lived next to a neighbor that had a terrible secret you didn't know until much later?](http://qr.ae/TUGmwv)
@@ -866,6 +890,8 @@ Talk of double life..
 The reason for going anonymous is obvious.
 
 > 为什么匿名还不显而易见吗?
+
+---
 
 ## 作家是什么体验?
 
@@ -905,6 +931,8 @@ I pull out a notebook or a napkin or a crayon or my computer and sit down and oh
 
 > 我拿出一个本子或者一张纸巾,或者蜡笔或者我的电脑,坐下来,最后,我终于要写一点东西了.
 
+---
+
 ## 怎样会毁掉自己的职业生涯?
 
 From:&nbsp; [What thing secretly destroys people's career?](http://qr.ae/TUG69a)
@@ -926,6 +954,8 @@ Until it isn't. You get passed over for promotion in favor of someone with bette
 As soon as your job seems easy, find a way to make it harder or find a new one.
 
 > 一旦你的工作变简单了,找一个让 ta 变难的方法,或者跳槽吧.(生于忧患)
+
+---
 
 ## 你想说什么?
 
@@ -964,6 +994,8 @@ Even after having so many prostitutes in this country, people are so shameless a
 I am not trying to justify her but I just wanted to say that even the person who pays for it also does the same mistake, then why is the prostitute alone facing problems and getting all the hate?
 
 > 我不是去为她证明什么,我只是想说即使那些嫖客也一样是错的,那为什么仅仅有性工作面临这些问题和所有的憎恨?
+
+---
 
 ## 在生活里面,你很久才领悟到的是什么?
 
@@ -1039,6 +1071,8 @@ Have a great day:)
 
 > 今天你不写 bug. :"}
 
+---
+
 ## 什么让你翻白眼?
 
 From:&nbsp; [What is something that makes you roll your eyes?](http://qr.ae/TUG03b)
@@ -1066,6 +1100,8 @@ Person B: That’s just part of being a Leo. We’re very impatient people.
 I absolutely hate when people try to use their Zodiac sign as a way to excuse their negative characteristics.
 
 > 我绝壁讨厌哪种用星座来掩护性格缺点的人.
+
+---
 
 ## 为什么我们这一代人这么不开心?
 
@@ -1177,7 +1213,9 @@ I do not expect life to just become “easy” after getting a STEM degree. I'm 
 
 > 我没期盼我的生活在拿到学位证之后会变得轻松一点.我没有比别人有更多或更少的权力.你知道最好的结果是什么吗?在拿到学位证之后,在我自己的专业里面找到一份工作.
 
-## 暗恋为什么那么难提现?
+---
+
+## 暗恋为什么那么难变现?
 
 From:&nbsp; [Why is it so hard to tell another person you love them?](http://qr.ae/TUhRlI)
 
@@ -1214,6 +1252,8 @@ If I tell him that I love him, I’m showing him just how much I appreciate him 
 Sometimes, the stakes are too high for me to tell the people I love what I truly feel about them.
 
 > 某些时候,告诉那些喜欢的人自己的真实感受,要付出很大的代价.
+
+---
 
 ## 你最后悔的是什么?
 
@@ -1265,6 +1305,8 @@ And many people suggested adopting. Except for pcod, I have no other problem. My
 
 > 很多人建议收养.除了 pcod,我没有其他的问题.我医生说我可以怀孕.我所有的检查都是正常的...
 
+---
+
 ## 爱能发电?
 
 From:&nbsp; [How does love change life?](https://qr.ae/TUhGfs)
@@ -1290,6 +1332,8 @@ She is living happily and here i am, with none of my friends around me.
 I was too depressed when i knew about it but now I enjoy being alone. It is too good to have no one that close. You dont have to give your time to nobody. You dont have to consider anyone before taking a decision. Once you enjoy being alone you’ll never want to go back.
 
 > 当我知道的时候,我恰如其分的忧郁了,现在我享受单身狗的生活.没一个人在周围也挺好的.你只要把时间给你自己就好.你在做决策的时候,不用考虑任何人.一旦你喜欢自己待了,你就回不去了.(我只看见了一堆借口的东西,不好意思)
+
+---
 
 ## 老师说了什么让你心碎?
 
@@ -1401,6 +1445,8 @@ How’s THAT for never amounting to anything, R?
 
 > 那说好我一事无成的呢,R?
 
+---
+
 ## 在哈佛里面遇见马特达蒙是怎样的感觉?
 
 From:&nbsp; [What was it like to be at Harvard with Matt Damon?](https://qr.ae/TUhru2)
@@ -1446,6 +1492,8 @@ Some years later I took a date to a movie. One of the previews was for "School T
 Matt knew what he wanted, worked hard for it, and got it. Good for him.
 
 > Matt 知道 ta 想要什么,而且为之努力,然后坐到了.真厉害呀.
+
+---
 
 ## 为人父母
 
@@ -1501,6 +1549,8 @@ My children’s lives will always be my priority.
 
 > ta 们的生命一直都是我的第一准则.
 
+---
+
 ## 你今天做了什么?
 
 From:&nbsp; [What did you do today?](https://qr.ae/TUhCMu)
@@ -1543,6 +1593,8 @@ You guys think Quora will sponsor our wedding?
 
 > 你们觉得 Quora 会不会赞助我们的婚礼?
 
+---
+
 ## 盲人需要开灯吗?
 
 From:&nbsp; [Do blind people turn on lights in their house?](https://qr.ae/TUh8TI)
@@ -1561,6 +1613,8 @@ He doesn’t turn lights on when sighted people are not there, mostly because th
 
 > ta 在没有我们这种人的时候是不会开灯的,因为 ta 们可能忘记关灯什么的,对之后的那几天的电费可不好.但自从那会开始,我们开始拿我在 ta 的地方需要轮椅(灯光)来开玩笑了.现在谁才是残疾人?
 
+---
+
 ## 为什么有些聪明人没钱?
 
 From:&nbsp; [Why aren’t all smart people wealthy?](https://qr.ae/TUhPIA)
@@ -1570,6 +1624,8 @@ Date: November 07 2018
 Being smart has nothing to do with being wealthy. Ironically, C students end up owning the companies where B students manage A students who do all the work. It is about drive, motivation and determination.
 
 > 智商和钱是不成正比的.通常在最后,60 分以下的学生开了一家公司,招了 70 分的学生做经理,然后把工作全都交给 90 分的学生做.这仅仅是自己的内心驱动,动机和决心造成的.
+
+---
 
 ## 火眼金睛
 
@@ -1588,3 +1644,53 @@ All but one of them will be telling me that I’m not doing what I’m supposed 
 My wife will be frowning at the others, telling them that they’re doing it wrong.
 
 > 我老婆就会皱着眉头的告诉其他人,ta 们不是这么劝的(能打就别哔哔).
+
+---
+
+## 关于流浪
+
+From:&nbsp; [Is being homeless as bad as people think?](https://qr.ae/TUh4ji)
+
+Date: November 08 2018
+
+It’s considerably worse.
+
+> 这比想象的更坏.
+
+When people think of homelessness, they think of someone sleeping rough, maybe in a cardboard box. They think it’s cold. They think they’ll be hungry.
+
+> 当 ta 们在想流浪的时候,ta 们只会想到就睡觉没那么好睡而已,或者睡在纸板上面.ta 们想这样子会很冷.ta 们想到 ta 们会变饿.
+
+My god, you have no idea what those things really are.
+
+> 我的 CPU,你根本不知道真正的流浪是什么样子的.
+
+I do not doubt that you have been cold at many points in your life. You may have been very cold. But homeless cold is different. You’re not just a bit chilly, you’re not a bit shiverry, your entire soul is frozen. Your bones feel like they’ve been kept in a freezer for a week and implanted in your flesh.
+
+> 我不怀疑你在你过去的生活里面受过冻,挨过饿.你甚至冻得很惨.但无家可归的冷是不一样的.你不止感到一点冷,不止颤抖,甚至连线粒体都被冻住了.你的骨头就像扔进冰箱里面冻了一个星期,然后再扔进你的皮肤里面的.
+
+I have no doubt you’ve felt hungry. But trust me, you have never felt real hunger. Hungry for you is that feeling you get at lunch after skipping breakfast. Real hunger is different. Real hunger hurts - a lot. You can hallucinate. I’ve gone nearly two weeks without food, I’ve been hungry. You were mildly peckish at best.
+
+> 我也不怀疑你挨过饿.但相信我,那不是真正的饿.你的饿就是那种吃午餐的时候发现早餐没吃的饿而已.真正的饥饿是不一样的,很大的不一样.你甚至会出现幻觉.我差不多两个星期没有食物,被饿坏了.你那没吃午餐的饿,几乎是我最舒服的感觉了.
+
+When was the last time you were awoken in bed by a group of thugs pissing all over you? It’s happened to me, and almost every other homeless person I know.
+
+> 最后一次你被一堆烂人的尿泚醒是什么时候?这些全都发生在我身上了,差不多几乎每一个无家可归的人都知道.
+
+When was the last time you ate disgusting leftovers out of a bin so you didn’t starve to death? Mine was about two weeks before I managed to get myself off the streets.
+
+> 最后一次你吃那些恶心的食物来维持自己不被饿死是什么时候?我是在想离开街头生活的前两个星期.
+
+When was the last time you received a severe beating because someone didn’t like you asking for a bit of small change?
+
+> 最后一次你在换零钱的时候,因为 ta 们不喜欢你,而被服务员打一顿是什么时候?
+
+How many times in your life have you gone to sleep, knowing you might not wake up in the morning? Homeless people are at extreme risk of violence when they least expect it. They have been stabbed, had petrol thrown over them and set alight, and much, much worse. The reason? Because why not…
+
+> 在你的人生里面你有多少次在睡之前,就知道可能自己再也醒不过来了?流浪的人最不希望发生暴力事件,因为 ta 们最不安全了.ta 们被刺,被淋汽油点着,更多更坏,更坏的事.为什么?还不是因为....
+
+I’ve heard people describe it as camping. You and I have vastly different ideas of what camping is.
+
+> 我曾听一些人说流浪就像野营一个卵样.那我一定对野营有什么误解.
+
+---
