@@ -1694,3 +1694,45 @@ I’ve heard people describe it as camping. You and I have vastly different idea
 我曾听一些人说流浪就像野营一个卵样.那我一定对野营有什么误解.
 
 ---
+
+## 关于离婚最奇怪的是什么
+
+From:&nbsp; [What was the strangest part of your divorce?](https://qr.ae/TUt7cb)
+
+Date: November 28 2018
+
+“Before I grant your divorce ma’am, your husband has written a letter to the court…”
+
+"在我批准你离婚之前,你的丈夫给我们法庭写了一封信..."
+
+My jaw went a tiny bit slack as the judge made that announcement. I glanced at my attorney, who shrugged and adjusted her glasses as she fixed her eyes on the judge.
+
+法官说这个的时候,我下巴都有点被吓掉了.我看了一下我的律师,ta 表示不知道,然后扶正了她的眼镜去盯着那个法官.
+
+The judge, a grandfatherly man who had kindly listened to my testimony against my soon-to-be ex, pulled a letter from an envelope. “Being that the respondent is incarcerated, I am obligated to read the letter,” he explained to me gently. I braced myself for whatever fresh hell Inmate Number 11178548 had written.
+
+那个法官是一个老头了,ta 很耐心听取我对很快就是前任的控词,从一个信封里面拿出一封信."被告正在监狱里面,所有我有义务去读这封信,"ta 向我解析道.我暗运内力,为了应对犯人 11178548 可能写了各种垃圾玩意.
+
+The judge cleared his throat. “Your honor, I wish to express my everlasting love for my wife and that I don’t want to get divorced. I admit that I have cheated and that I have gotten physical with her, but my time in prison has changed me…”
+
+那法官清理了一下喉咙."大人,我希望去表达我对妻子那种山无陵的爱恋,所以我不想离婚.我承认我出轨,家暴,但监狱真的改变了我...."
+
+The judge crumpled up the letter and threw it in the trash.
+
+法官把那封信揉成一团扔进垃圾桶里面去了.
+
+“Young lady,” he said, addressing me, “you are fortunate that I sentence offenders like this regularly and I am quite confident that he hasn’t, and will never, change.”
+
+"小屁孩",ta 看着我说,"你很幸运,我经常判决这样的罪犯,我很肯定 ta 从来没改过,以后也不会改的"
+
+I let out a breath and stood a little straighter. The judge continued.
+
+我深呼吸了一下,然后站直了一点.那个法官继续宣判.
+
+“I determine this man to be a threat to you and your child’s safety. I grant you complete and total custody. And ma’am,” he said, looking at me intently, “you’re lucky to have survived this ordeal. Be more selective next time, will you? The divorce is granted.”
+
+"我觉得这个男会是你和你的小屁孩的威胁.所以我给你全部的抚养权.然后,女士",ta 看着我说,"你从这次折磨幸存下来是一件很幸运的事.但你下次选择要慎重一点呀,可以没?你的离婚申请被批准了."
+
+The gavel came down. And I walked out of that courtroom a free woman.
+
+小木槌一下.然后我就以自由人的身份离开了法院.
