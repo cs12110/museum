@@ -1736,3 +1736,67 @@ I let out a breath and stood a little straighter. The judge continued.
 The gavel came down. And I walked out of that courtroom a free woman.
 
 小木槌一下.然后我就以自由人的身份离开了法院.
+
+---
+
+## 炫富惹你哪了
+
+From:&nbsp; [What rich people complaints piss off poor people?](https://qr.ae/TUt8Ej)
+
+Date: November 29 2018
+
+My girlfriend comes from a family who are doing well for themselves.
+
+我的女票来自一个挺好的家庭里面.
+
+On the other hand, I was brought up in a family which struggled financially most of the time.
+
+说起来,我在一个大多数时间都挣扎在解决温饱的家庭里面长大的.
+
+I started doing part-time jobs from a very young age so I always claim that I know more about struggle than she does.
+
+我在很小的年纪里面就开始做兼职了,所以我清楚还有很多人比 ta 们过得更难的.
+
+We were having a conversation once which went something like this:
+
+我们有一次进行了下面这种对话:
+
+Me: I know more about struggle than you do.
+
+我: 我知道一些比你过得更难的人.
+
+Her: How?
+
+她: 怎么可能.
+
+Me: I had to work almost every weekends when I was in high school and I didn't always get what I wanted.
+
+我: 在我高中的时候,我每个星期都要兼职,但我还是得不到我想要的东西.
+
+Her: I know about struggle too.
+
+她: 我很挣扎呀.
+
+Me: Tell me about it.
+
+我: 还不是吗.(嘲讽脸)
+
+Her: Sometimes we did not have anything to eat.
+
+她: 有时候,我们连任何吃的东西都没有.
+
+At that moment I started wondering about whatever she just said to me.
+
+在这一刻,我有点好奇,她说的是什么.
+
+Me: I don't believe you
+
+我: 又在骗我了.
+
+Her: Well, we had all the food in the world but we were too lazy to cook.
+
+她: 好吧,我们有这个世界上所有的食物,但是我们太懒,没人去做饭呀.
+
+Fake complaints pisses me off.
+
+这种假埋怨,让我恼火.
