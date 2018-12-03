@@ -1800,3 +1800,35 @@ Her: Well, we had all the food in the world but we were too lazy to cook.
 Fake complaints pisses me off.
 
 这种假埋怨,让我恼火.
+
+---
+
+## 瞬息人生
+
+From:&nbsp; [What is a split-second decision you made that changed your life?](https://qr.ae/TUttYl)
+
+Date: December 03 2018
+
+One day I decided to break up with my girlfriend at the time. The timing just wasn’t right. I was only 20 years old, played drums in 5 different bands of some kind, wanted to party, had a (almost) full time job, and was a full time student in a tough Aerospace Engineering program.
+
+那天,我决定要和我的女朋友分手.仅仅年龄还不合适.我那会才 20 岁,在 5 个不同的乐队里面做着鼓手,想去 party,还有一个差不多是全职的工作,同时也是一个全天制的工程学生.
+
+I called her and asked if we could meet in the Science building. Why the Science building? To this day I don’t know…it was close to her dorm and close to parking where I could get this over with quickly perhaps. As I saw her walking, I took a look at her for the last time as my girlfriend, at that point I began reminiscing our relationship, the ups, the downs, how it began, it had only been about 5–6 months.
+
+我打电话给她,问她我们可不可以在科学楼里面见一下.为什么是科学楼呢?今天我都忘记了缘由...或许是那里比较靠近她的宿舍,和比较靠近最近我能停放的停车场.然后她看见这走过来了,我看着最后一次以我女朋友的那样子看着她,就在那一刻我想起了我们的感情,涨落交替,怎么开始交往的,大概也仅仅只有 5-6 个月而已.
+
+I thought as she was walking, I saw her from hundreds of feet away…I dated her because she was marriage material, absolutely beautiful, very mature yet super playful, any guy would want her, her laugh was contagious, not only were our senses of humor similar, they often complimented each other. I loved her, I’d hate to see her cry. It’s going to be hard to find someone like her. No, not hard…impossible. But at least I get these next 3–4 years to myself, and I’ll have to find another woman as perfect as her to spend the next 40 years with. Wait a minute…
+
+我在她在走的时候想着这些东西,我看见她离我不远了.我和她交往是因为我觉得她是结婚的好伴侣,绝对的漂亮,成熟和外向,每个男的都想得到她,她的笑很有感染力,不但对我们笑点差不多,我们还很默契.我是喜欢她的,我不想看见她哭了.肯定很难找到另一个像她一样的女孩子了.不,不是的,是几乎不可能找到另一个和她一样的女孩子了.但是我起码有 3-4 年自由时间,然后我要去找其他的像她一样完美的女孩子,来共度余下的 40 余年.等一下...
+
+It hit me, I’m trading 40 years of pure joy for 3–4 years of immature fun, and I’m about to make the biggest mistake of my life. As she was about 30 feet away from me, I changed my mind.
+
+这让我感到挫败,我把 40 年用来换 3-4 年的短暂欢愉了,我就要做出人生中最大的错误的抉择了.她离我还有 30 步远而已,我改变我的心意.
+
+I’m 28 now. This woman is now my wife of 3 1/2 years, currently carrying our first son, and I couldn’t be happier.
+
+现在我 28 岁了.那个女孩子已经是我妻子 3 年半了,正在照顾我们的第一个孩子,我不能比这个更幸福了.
+
+Edit: A lot of people are asking what I ended up saying was my excuse for meeting her after I changed my mind. I remember saying that I wanted to check out the planetarium but I didn’t know they were closed on Saturdays (I knew they were closed). Honestly the rest is boring, we had a pretty normal day besides me having to clear my head a bit.
+
+更新: 很多人问我用什么缘由来掩盖我改变心意之后的见面.我记得是我说想去天文馆但是我不知道那个是星期六关闭的(我知道 ta 是关闭的).其他的也就是日常交流了,从我清醒之后,那天就是普普通通的一天.
