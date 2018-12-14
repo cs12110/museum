@@ -1,10 +1,10 @@
-# 4fun
+# stories-box
 
 **Collecting stories from anywhere.**
 
 **Just for fun.**
 
-`Gitbook` 地址:[gitbook-4fun](https://legacy.gitbook.com/book/cs12110/4fun/details)
+---
 
 ## 1. 说明
 
@@ -14,6 +14,8 @@
 
 如果发现侵犯了您的权利,请联系`cs1210@163.com`,本人会删除相关收集并道歉.
 
+---
+
 ## 2. 推荐
 
 a. [quora](https://www.quora.com/)
@@ -21,3 +23,4 @@ a. [quora](https://www.quora.com/)
 b. [知乎](https://www.zhihu.com)
 
 c. [豆瓣](https://www.douban.com/)
+
