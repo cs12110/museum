@@ -75,3 +75,91 @@ Needless to say I was in shock. In a shoebox at home buried in a closet was the 
 God I wish I could have heard all this from Dad. Does he know how proud I am of him?
 
 要是我能听到 ta 自己说这些就好了. ta 知道我对 ta 有多骄傲吗?
+
+---
+
+## 当你伴侣脱掉衣服的时候,你觉得什么恶心到你了?
+
+From:&nbsp;[What's the most disgusting thing you've found when your partner took off their clothes?](https://www.quora.com/Whats-the-most-disgusting-thing-youve-found-when-your-partner-took-off-their-clothes/answer/Haida-Kato)
+
+Date: December 24 2018
+
+I met this girl not too long ago; she was very pretty and from Japan like yours truly, so I decided to help her around town.
+
+在不久前,我碰到了这个女孩子.ta 很漂亮,来自日本,就像你想的那样子,所以我决定去帮助熟悉这个镇子.
+
+Something a little strange about her that I didn’t pay much attention to was that she always wore long-sleeved turtlenecks, or anything that would cover her neck and arms.
+
+关于 ta 有一点奇怪的是,之前我没留意到 ta 一直穿着长袖高圆领的衣服,或者其他能遮住 ta 脖子和手臂的东西.
+
+I knew she grew a liking to me, with me being a little dismissive at first, because the “How could anyone love me?” mentality. I slowly warmed up and we started being flirty.
+
+我知道 ta 对我的好感日益剧增,刚开始我很不理解,因为我的"怎么可能会有人喜欢我?"的人设.后面,我开始膨胀了,和 ta 相互撩骚.
+
+After a while, we went on our first date.
+
+一段日子过后,我们去了我们的第一次约会.
+
+A cafe, one of those millennial trend types of places.
+
+咖啡店,在一个比较潮流的地方里面.
+
+She showed up and said hi nervously, and we sat down at a table near a window. While we were talking, I noticed she tapped the table with her fingers, and whenever we would stop talking she would look out the window and just stare at the people walking by. Sometimes adjusting her turtleneck’s collar and sleeves up.
+
+ta 来到的时候很紧张的打了一下招呼,然后我们坐在一张靠着窗口的桌子前.在我们说话那会,我注意到 ta 喜欢用手指敲到桌面,不论什么停掉交谈的时候,ta 总是盯着窗外,看人来人往.有些时候 ta 就整理一下 ta 的长袖和衣服.
+
+She was anxious. Understandable, I sometimes look a little bit intimidating because I have a natural cold stare and I like wearing leather jackets.
+
+ta 很紧张.可以理解,我有时看起来比较吓人,因为我喜欢冷冷的盯着别人,而且喜欢穿皮革外套.
+
+When I went to get the coffee, I came back with a cookie as well. She laughed because it seemed so weird from the way I looked.
+
+当我去拿咖啡回来的时候,我还拿了一点饼干.ta 笑了,因为我那天看起来挺奇怪的.
+
+It went really well. We went on a few more dates, each time she got more and more nervous. I assumed it was because she was an anxious person, I didn’t pressure her - it seemed like a difficult topic.
+
+看起来都很好的样子.我们又约会多了几次,每一次 ta 都更紧张了.我只是觉得 ta 是一个比较不安的人,我没去问 ta-这看起来很难开口.
+
+Then we went and hung out in each other’s apartments.
+
+然后我们都去对方的公寓逛啦.
+
+After a few weeks of dating, she said in a sad tone, “This is the longest I have ever dated someone.”
+
+在几个星期的约会之后,ta 忧伤的说,"这是我人生中最长的一次约会了."
+
+I asked why, and she said that she was dreading this day.
+
+我问为什么,ta 说 ta 这些天都快紧张到崩溃了.
+
+She uncovered her arms and neck, revealing burn scars — it looked like snakes made of fire coiled around her arms and neck. The rest of her body also had this bizarre coil.
+
+ta 把长袖拿掉露出手臂和脖子,展露那些疤痕-看起来就像被油炸过的蛇缠绕在 ta 的手臂和脖子上面.ta 身体上的其他部分也有着其他伤痕.
+
+This is why she was so anxious, why she wears long sleeves.
+
+这就是 ta 为什么紧张,为什么穿长袖的原因了.
+
+And you know what I did?
+
+你知道我做了什么吗?
+
+I hugged her.
+
+我抱了 ta 一下.
+
+The most disgusting thing about this is not her scars, it’s that she has to hide them, to keep people from judging and staring.
+
+最恶心我的不是 ta 的疤痕,而是 ta 必须要去隐藏那些疤痕,才能远离那些碎嘴的人.
+
+That, is what I found most disgusting.
+
+这就是我发现最恶心的事了.
+
+Follow-up: I am still dating her - I swear she’s my soul-mate, and I wouldn’t have her any other way.
+
+更新: 我们还在一起呀,我知道 ta 是我的另一半,而且我不能失去 ta.
+
+I didn’t think it would explode like this. I appreciate all the stories and praise from all of you, and I hope all of you have fantastic lives.
+
+我不知道会有这么多点赞.我感谢你们所有的故事和赞扬,希望你们也有一个精彩的人生.
