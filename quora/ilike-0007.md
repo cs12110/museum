@@ -163,3 +163,67 @@ Follow-up: I am still dating her - I swear she’s my soul-mate, and I wouldn’
 I didn’t think it would explode like this. I appreciate all the stories and praise from all of you, and I hope all of you have fantastic lives.
 
 我不知道会有这么多点赞.我感谢你们所有的故事和赞扬,希望你们也有一个精彩的人生.
+
+---
+
+## 那些你们告诉过你配偶的东西.
+
+From:&nbsp;[Ladies: what is one thing you want to tell your significant other but just can't?](https://www.quora.com/Ladies-what-is-one-thing-you-want-to-tell-your-significant-other-but-just-cant/answers/114801157)
+
+Date: January 02 2019
+
+You snore. Most of the time, it’s cute.
+
+你打呼噜.大部分时间,都还好啦.
+
+I spend a lot of money on you. I hope you never find out how much.
+
+我在你身上花了超多的钱.我希望你永远不知道是多少.
+
+Sometimes I think about how interwoven our lives have become and it makes my heart swell. Other times it makes me want to vomit from fear.
+
+有些时候,我想起我们共同虐狗的生活有多么好的时候让我有点小膨胀.但其他时间我很害怕,都几乎要吐了.
+
+If I decline sex, it’s usually because I’m not feeling great about my body that day, not because I don’t want to have sex with you.
+
+如果我不想 sex 的话,通常是因为那天我自己身体不舒服,不是因为我不想和你 have sex.
+
+I love you. I do. But some days, I feel so unappreciated that I question whether I’m stupid for doing so.
+
+我喜欢你,我真的喜欢你.但有些日子,我很恼怒我自己在做的一些事情.
+
+I clean your room while you’re out. I wash the dishes. I have washed your car. I don’t do it for you, I do it for me.
+
+在你外出的时候,我打理房子.清洗盘子.我还清洗你的车.我不是为了你而做的,而是为了我自己.
+
+Yes, a lot of people pursue me. No, it doesn’t matter because I only have eyes for you.
+
+是的,有很多人想追我.但没关系呀,我眼里只有你.
+
+You are an adorable drunk. But please stop telling everyone how much you love the taste of my vagina.
+
+你是一个可爱的猪.但请不要告诉每个人,你喜欢我的下面.
+
+I know you love me. But sometimes I get insecure and verbal reassurance would be nice.
+
+我知道你喜欢我.但一些时候我很不安,安慰一下就很好了.
+
+I changed my entire diet and quit smoking and drinking to make oral more enjoyable for you.
+
+我改变了所有的日常习惯,戒烟和戒酒,只为了我们相互之间待着更舒适一点.
+
+Don’t buy me expensive shit. Surprise me with things I’ve casually mentioned. Thoughtful stuff. Inside jokes. Make it personal.
+
+不要给我买贵的玩意.能在我提起的东西给我一点惊奇就好.想法啦,笑话啦.做得更个人一点就好.
+
+If we have an inside joke about cacti, get me one. I’ll appreciate it more than some overpriced dinner.
+
+如果我们有一个关于仙人掌的笑话,给我说呀.这比去吃顿贵的东西更让我感激.
+
+I do notice when you don’t brush your teeth. I just pretend not to. I choose to kiss you anyway. Afterwards I brush my teeth, floss, and rinse.
+
+我的确知道你有没有刷牙.我只是假装不知道而已.不论怎样我选择吻你.在之后,我会刷我自己的牙,清理一下.
+
+I love you. Way more than you know. Please stay.
+
+我喜欢你,比你想的更喜欢.请,留下来.
