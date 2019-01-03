@@ -227,3 +227,99 @@ I do notice when you don’t brush your teeth. I just pretend not to. I choose t
 I love you. Way more than you know. Please stay.
 
 我喜欢你,比你想的更喜欢.请,留下来.
+
+---
+
+## 作为纹身手艺人,什么让你哭成狗?
+
+From:&nbsp;[As a tattoo artist, what is the saddest meaning behind a tattoo that you’ve heard?](https://www.quora.com/As-a-tattoo-artist-what-is-the-saddest-meaning-behind-a-tattoo-that-you-ve-heard/answers/114620027)
+
+Date: January 03 2019
+
+Oh god I'm going to cry writing this one. Okay. Here we go.
+
+窝草,我会哭着写完这个故事的.好吧,我们现在开始准备好纸巾.
+
+A kid comes in, well not really a kid but not an adult for sure. He was 22 if I remember. He hands me a letter, sealed in an envelope and everything. He never said a word, just standing there alittle nervous. I'm a female artist with the biggest shop in my area, I'm fairly well known and at first I thought, “Oh here we go, some shitty love letter.” I know that sounds cringey but I have honestly had men try to propose a date to me during a session, one guy pulled his member out and asked me if I was impressed, not because I'm some irresistible vixen but because I'm a heavily tattooed woman and some mean like that.
+
+一个小屁孩走进店里面,也不算是小屁孩,当然也不算是大人的那种小屁孩.那会 ta 才 22 岁.ta 递给我一封信,和其他东西密封在一个信封里面.ta 没有说话,站在那里有点小紧张.我是一个在我们那个地区算是杠把子类型的纹身店的女老板了,在我的第一想法里,"窝草,又来了,又是一些恶心人的情书."我知道这听起来有点自恋,但我必须说,那时候还是有男的想追我的,一个男的把 ta 的小伙伴拿出来,问我是不是印象深刻,不是因为我有多大的魅力什么的,而是因为我是一个会纹身的女孩子,而一些男的就喜欢这口.(这样子翻译,求饶命)
+
+I give him a raised brow and open the letter, it was just a small circle with a crude dotted line and X drawn inside it, kind of like a tiny treasure map.
+
+我给 ta 翻了一个 45 度的白眼,然后打开那封信,那里面就只有一个小圆圈,一个有油迹的圆心,还有一个 x 画在里边,就像一个小小的藏宝图.
+
+“Is this what you want today?”
+
+"这是你今天想纹的吗?"
+
+“Yes ma’am.”
+
+"是的,大人"
+
+“Alright, well let me go sketch something up and we’ll talk prices.”
+
+"了解,先让我素描一下,然后我们再谈一下价格."
+
+“Sure, but can you please make it as accurate to that as possible?”
+
+"好的,能否请你画得尽你所能的精确?"
+
+“Yea, I can. It still has to be drawn up so I can put on the stencil.”
+
+"好的,我会的.就算这样子我还是要先画下来,然后才能纹."
+
+“Alright, thank you.”
+
+"了解,谢谢."
+
+Blah blah blah, stencil and prices out of the way, now I'm sitting here tattooing it on his leg.
+
+Blah blah blash,模板和价格都弄好了,现在我坐在那里,在 ta 的脚上纹上这个纹身.
+
+“So is this something you drew?”
+
+"这个是你自己画的东西吗?"
+
+“My dad drew it.”
+
+"我爸画的."
+
+“Okay.” That was that. That's all he said. About 15 minutes later, I notice his leg is quivering.
+
+"好吧."就这样.这就是 ta 说的了.在 15 分钟后,我察觉到 ta 的腿在颤抖.
+
+“Hey are you okay? Your legs sha-” I look up and this kid has big fat tears rolling down his cheeks. His whole body is vibrating as he sniffles and tries to sob, I mean sob, silently.
+
+"喂,你还好吧?你的腿在抖.." 我看向这个小屁孩的时候,我看见 ta 的眼泪都掉到脸颊了.ta 的整个身体因为抽泣而颤抖,而且 ta 还在克制着自己低声的哭泣,我是说那种无声的哭泣.
+
+“Are you okay? Do we need to stop? Do you need some water?”
+
+"你还好吧?我们需要停下来吗?你要不要喝点热水?"
+
+“No, no its okay. I'm sorry, I'll try and hold still.”
+
+"不需要,还好.不好意思呀,我会努力保持不动的."
+
+My mommy instincts kick in, this kid is in pain.
+
+看到这个小屁孩待在痛苦里面,我母爱泛滥了.
+
+“Hey, what's wrong? Are you okay?” I take off my glove and reach for his hand. Usually I would find this inappropriate at the work place, I would either call off the session and ask him to come back another day or try and carry on without prying but he looked so... Gone? Like his mind was wondering and wherever it was going was killing him emotionally.
+
+"Hey,出什么事了吗?你还好吧?" 我把手套摘下,握住 ta 的手.通常我觉得这样在在工作的地方很不合适,我一般会取消这次的纹身而叫 ta 其他时间再来,然后继续其他业务而不刺探任何的东西,但 ta 看起来太...失落?就像 ta 很惊奇,但是现在发生的东西正在把 ta 的情感给绞杀掉.
+
+He exploded.
+
+ta 被拆碎了.
+
+“Every year for my birthday my dad would draw me a treasure map to a special gift he got me. That was the best day of every year for me, getting that map and going out looking for my gift. It was always in a new place, the map was always exciting, he would take hours in his study drawing me these little maps so I'd have a great adventure on my birthday. Last year he got in an accident and sustained severe trauma, he made it by the grace of god but the doctors said the damage to his body was horrific at best and he'd have alot of complications and revision surgeries. He couldn't talk and could only barely write to tell us what he needed. This is the last map he drew for me on my birthday before he passed away a few days later. I don't know what its supposed to lead to, I never got a chance to ask him. One day I think I'll find out what that map leads to.”
+
+"每一年,我爸会把我的生日礼物藏起来,然后画一张藏宝图给我.对我来说,那是一年中最好的一天呀.拿到藏宝图,然后去找生日礼物.那些礼物总是在新的地方,藏宝图总是让人很激动,我爸会花上一个多小时去画出这个藏宝图给我,好让我在生日那一天可以有一个惊奇的探险.上一年,我爸遇到了意外,有几次很严重的创伤,我爸好不容易撑过来了.医生说 ta 身体的创伤很严重,ta 还要经过很多的手术和康复治疗.ta 甚至不能说话,只能吃力的画下来告诉我们 ta 需要什么.这就是最后一张藏宝图了,在 ta 去世的前几天给我画好的.我不知道这藏宝图会带我去什么地方,我连问 ta 的机会都没了.在某一天,我想,我会知道这张地图会带我去哪里的."
+
+This kid got the last map his dad ever drew for him permanently on his body.
+
+这个小屁孩把 ta 爸曾经画给 ta 的地图纹在自己的身上了.
+
+When I say I cried, I mean I CRIED. I went home and bawled to my husband. I don't know what that map was supposed to lead to but I know that kid will figure it out one day. I don't know his dads name, but whoever he is, rest in peace. You were so loved and so missed. I can see, just from talking to your son, you were the best dad in the world. You really were.
+
+在我说我哭的时候,我是说我真的哭了.我回到家在我丈夫面前哭得一塌糊涂.我不知道那张地图会指向哪里,但我知道那个小屁孩一定会找到的.我不知道 ta 父亲的名字,甚至连 ta 是谁都不清楚,RIP.你被深爱和被深深的怀念着.我可以看出来,在和你的小屁孩的交谈的时候,你是这个世界上最好的父亲了.你真的是.
