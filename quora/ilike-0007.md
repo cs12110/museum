@@ -323,3 +323,79 @@ This kid got the last map his dad ever drew for him permanently on his body.
 When I say I cried, I mean I CRIED. I went home and bawled to my husband. I don't know what that map was supposed to lead to but I know that kid will figure it out one day. I don't know his dads name, but whoever he is, rest in peace. You were so loved and so missed. I can see, just from talking to your son, you were the best dad in the world. You really were.
 
 在我说我哭的时候,我是说我真的哭了.我回到家在我丈夫面前哭得一塌糊涂.我不知道那张地图会指向哪里,但我知道那个小屁孩一定会找到的.我不知道 ta 父亲的名字,甚至连 ta 是谁都不清楚,RIP.你被深爱和被深深的怀念着.我可以看出来,在和你的小屁孩的交谈的时候,你是这个世界上最好的父亲了.你真的是.
+
+---
+
+## 订披萨做报警策略
+
+From:&nbsp;[Can you actually call 911 and “order a pizza” as a ruse for help?](https://www.quora.com/Can-you-actually-call-911-and-order-a-pizza-as-a-ruse-for-help/answer/Nick-Yates-14)
+
+Date: January 05 2019
+
+I know of one case of this actually happening in the UK.
+
+我知道一件真实发生在英国的案件.
+
+The call went something like this:
+
+那个电话通话大致如下:
+
+Operator: Police Emergency
+
+接听员: 警察局
+
+Caller: Hello, I’d like to order a curry please.
+
+报警人: Hello,我想订一杯饮料.
+
+O: You’re through to the police
+
+接听员: 你打给的是警察局呀
+
+C: Could you deliver it to ‘gives address’
+
+报警人: 你可以送我这个地址吗?
+
+O: Madam, this is the police, not a delivery service
+
+接听员: 夫人,这里是警察局,不是送外卖的.
+
+C: Could you deliver it as soon as possible?
+
+报警人: 你能尽快的送到没?
+
+O: (starting to realise something is wrong) “Madam, are you in a situation where you cannot talk freely?
+
+接听员:(开始意识到事情并不简单)"夫人,你是不是遇到了什么危险而又不能明示的?"
+
+C: Yes.
+
+报警人: 是的.
+
+O: Are you in danger?
+
+接听员: 你现在处于危险之中?
+
+C: Yes.
+
+报警人: 是的.
+
+O: Okay, I’m arranging help for you immediately.
+
+接听员: 好的,我会为你立刻安排援助的.
+
+C: Could you make it two Naan Breads? My husband is really hungry.
+
+报警人: 你还可以送两条面包吗?我的丈夫现在很饿.
+
+O: I’ll send two officers.
+
+接听员: 我会安排两名警察的.
+
+This transcript is purely based on memory from a police officer’s memoir. On the police response, a very angry man was arrested for domestic violence.
+
+这段对话基于接听员的回忆.在接听员的回应里面,一个因为家庭暴力的男子被捕了.
+
+There was obviously the risk that the operator could have hung up on a ‘time-wasting’ caller, but once they realised something was wrong, they changed scripts immediately.
+
+那里肯定有风险那个接听员把这个浪费时间的电话挂掉,但意识到什么不对的时候,他们就会使用暗号了, over.
