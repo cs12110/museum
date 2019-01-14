@@ -399,3 +399,103 @@ This transcript is purely based on memory from a police officer’s memoir. On t
 There was obviously the risk that the operator could have hung up on a ‘time-wasting’ caller, but once they realised something was wrong, they changed scripts immediately.
 
 那里肯定有风险那个接听员把这个浪费时间的电话挂掉,但意识到什么不对的时候,他们就会使用暗号了, over.
+
+---
+
+## 你对女孩子说过什么最不切实际的话?
+
+From:&nbsp;[What is the most accidentally slick thing you said to a girl?](https://www.quora.com/What-is-the-most-accidentally-slick-thing-you-said-to-a-girl/answer/Corey-Rippeto-1)
+
+Date: January 14 2019
+
+When I was 8 years old, I was appointed as ring boy in my aunts wedding.
+
+在 8 岁的时候,我被指派为我姑的婚礼上的送戒指的那个男孩子.
+
+The man my aunt was marrying had a niece just 1 year younger than me. She was the flower girl.
+
+我姑嫁的那个男人那边刚好有一个比我小一岁的侄女.ta 也是花童.
+
+Well, I took a liking to her quickly..
+
+好吧,我承认我很快就喜欢 ta 了..
+
+I actually ended up trying to propose to her.. with the wedding ring!
+
+我在最后努力去向 ta 求婚..用那个戒指!
+
+When they first gave me that ring to carry around, I felt like I was given a mission to protect it with my very life.
+
+当 ta 们给我拿着那个戒指的时候,我觉得我有使命用生命去保护那个戒指.
+
+Then, this cute, curly haired girl comes along and I'm down on my knee offering it to her!
+
+然后,那个可爱的,头发有点卷的 ta 来到了,我献出我的膝盖,然后想把戒指给 ta.
+
+Needless to say, I was not able to actually give her the ring..
+
+不用说啦,我不能真正的给 ta 那个戒指..
+
+So, 14 years later she and her mom are at the mall walking by the jewelry store I was working at at the time.
+
+所以,14 年之后,当 ta 和 ta 妈在逛珠宝店的时候,当时我正好在那边工作.
+
+She recognizes me and after passing the store, tells her mom who I am.
+
+ta 认出了我,在经过之后,ta 告诉 ta 妈我是谁.
+
+Her mom then turns around and by accident, loudly says
+
+ta 妈突然就转过身来,然后大声说
+
+“Oh my gosh, that's Corey?!”
+
+"窝草,这就是 Corey?!"
+
+This gets me excited.. and nervous.
+
+这让我很兴奋..也很紧张.
+
+I smile, and say
+
+我笑着,然后说
+
+“Hey! Yeah, it's me! How are you doing?”
+
+"Hey.是的,就是我.进来过得怎样?"
+
+They walk back to me, and her mother asks how I'm doing and if I'm working at this jewelry store.
+
+ta 们走回到我这边,然后 ta 妈问我是不是在这家店铺工作,过得怎样
+
+Without even thinking or skipping a beat, I reply..
+
+来不及思考或者心跳漏了一拍,我回答了..
+
+No, actually 14 years ago I tried giving Shannon a ring, but it was taken away. After that, she ran off on me. I've just been waiting on her to come pick out a ring I can actually give to her. And now here she is.
+
+不,在 14 年前,我想给 ta 一个 Shannon 戒指,但戒指被别人拿走了.在这之后,ta 从我身边离开了.我在等 ta 回来拿这个我可是真正给 ta 的戒指.然后,现在,ta 就在这里了.
+
+I didn't even know what I said, it just came out.
+
+我甚至不记得我说了什么,就那么说出来了.
+
+But her face was sooo red, I knew it hit home.
+
+但 ta 脸变得很红,我知道有戏了.
+
+That was almost 3 years ago.
+
+那大概是三年前了.
+
+I still haven't given her a ring, but we've been dating ever since.
+
+我现在还没给出那个戒指,但从那开始我们就开始虐狗了.
+
+The “slickest" thing I've ever accidentally said to a girl has turned out to also be the best one.
+
+那个我偶然对女孩子说过最却华而不实的东西,最后发现是我说过最好的.
+
+Now, if you'll excuse me, I have an adorable, curly-haired snoring machine to snuggle up to.
+
+现在,不好意思,我要抱着一个可爱,卷发而又打着鼻鼾的暖手器了.
