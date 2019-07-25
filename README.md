@@ -1,4 +1,4 @@
-# stories-box
+# museum
 
 **Collecting stories from anywhere.**
 
@@ -23,4 +23,3 @@ a. [quora](https://www.quora.com/)
 b. [知乎](https://www.zhihu.com)
 
 c. [豆瓣](https://www.douban.com/)
-
