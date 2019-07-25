@@ -499,3 +499,155 @@ The “slickest" thing I've ever accidentally said to a girl has turned out to a
 Now, if you'll excuse me, I have an adorable, curly-haired snoring machine to snuggle up to.
 
 现在,不好意思,我要抱着一个可爱,卷发而又打着鼻鼾的暖手器了.
+
+---
+
+## 哪一刻改变了你的一生
+
+From:&nbsp;[What was the turning point of your life that changed you completely?](https://qr.ae/TWnQvp)
+
+Date: July 25 2019
+
+When I was 16, the single hottest girl in the year invited me to her fancy dress party.
+
+那年,我 16(汤师爷是这么说的),学校里面最漂亮的那个单身女孩子要请我去一个牛掰的盛装派对.
+
+I was under no illusions. I didn’t think this would mean she wanted to bang me on every piece of furniture in her house like I was her big toe.
+
+我还没傻.我知道这不意味着 ta 想把我像大玩具一样,在 ta 家里面扔来扔去(觉得没这么简单).
+
+But still, a personalized invite from the school babe was something special.
+
+但一个来自校花的个人邀请,还是很特别的.
+
+The problem was I just KNEW my Mum wouldn’t let me go.
+
+可问题是,我刚刚知道我妈不准我去呀.
+
+My Mum was a strict one, and there was study or chores to be done. Fun could wait. So I preempted her decision and accepted my fate.
+
+我妈是很严格的一个人,我还杂务和学习需要去完成.玩乐可以稍稍往后靠一下.所以知道 ta 的决定,然后接受了我的命运.
+
+All week I reminded myself she’d say no, and got on with my life. I told myself that the party wasn’t really for me anyway. It was for the cool kids.
+
+一整个星期,我提醒我自己我妈会不准我去的,然后我又回归我的生活了.我告诉自己那个派对也不是为我举办的,都是为了那些杀马特.
+
+Then, when Saturday rolled around, I went to my Mum and asked her upfront, “Can I go to a fancy dress party tonight? A girl at school invited me”.
+
+然后,星期六如约而至,我去问我妈要预支一点钱,"我今晚能去一个盛装派对吗?一个在学校的女孩子邀请了我."
+
+And after a week of already knowing the answer, and knowing I’d only feel out of place there, my Mum turned around and said…
+
+在经过一个星期消化那个不允许的回复之后,我知道在那里试探出来了,然后我妈回过身对我说:
+
+“Yes”.
+
+**"可以呀"**
+
+I didn’t know what to do. I was so shocked she’d said yes that I froze. It was so out of character and alien that I walked away, wondering what just happened.
+
+我惊慌失措.在她说可以的时候,我被惊呆了.我在走开的时候,就像一个刚到地球的外星人一样,还在想刚才发生了什么.
+
+And you know what I did that night? Nothing.
+
+然后你知道那晚,我做了什么吗? **什么也没做**.
+
+I was too afraid to go to that party. I was so sure I wouldn’t be allowed that I had psyched myself out. I was paralyzed by fear. The moment had passed. And I missed it.
+
+我太害怕去那个派对了.我之前很肯定我不会被允许参加那个派对的,然后兴奋到模糊.是害怕让我麻木了.那个派对过去了.而我也根本没去参加.
+
+The next morning my mate called me. He told me the party had been OFF THE CHAIN. Apparently the school hottie had even asked where I was. She’d been hoping to see me there. But I was at home. Too afraid to take a chance, having already convinced myself that the chance never belonged to me in the first place.
+
+第二天早上,我同学给我消息.ta 告诉我那派对 tmd 好玩了.ta 甚至问我在哪了.ta 还以为在那里可以见到我.但我在家里面了.太害怕去得到,早就说服自己那些机会从来就不属于我自己.
+
+I remember the moment as clear as day. My one and only epiphany in life. I was 16 years old and I said to myself…
+
+那个时刻,依然历历在目.我人生中唯一的一次顿悟.在 16 岁年,我对我自己说:
+
+”Alexander, I know life is scary. But if you say no to opportunities like this, you’ll never have a single story worth telling. You might get hurt, or scared, or even sad, but it’s time to start living life.”
+
+"Alexander,我知道生活很恐怖.但是你对这样的机会说 no 的话,你永远都不会有一个属于自己的故事.你可能会受伤,害怕,甚至是悲伤,但是是时候开始自己的生活了"
+
+And Quorans, you know what happened after that?
+
+然后 Quora 人,你知道在这之后发生了什么吗?
+
+Nothing.
+
+**还是什么也没发生.**
+
+I didn’t change a fucking thing. I was still terrified of the world. Convinced every exciting moment belonged to someone else. And that I would be a fraud if I wanted to experience them myself. So nothing changed at all.
+
+我甚至连一件小事都没改变.我还是对这个世界感到害怕.说服自己那些激动人心的时刻都是别人的.如果我想去经历那些东西的话,我一定会是渣渣来的.所以一点东西也没改变.
+
+4 years later, just after my 20th birthday, I was diagnosed with an aggressive form of Leukemia that spirits away life with devastating ease.
+
+4 年后(镜头一转),就在我 20 岁的生日后,我被诊断出患有一种侵略性的白血病,这种病很容易就挂掉了.
+
+And truth be told I had the ‘Life Flashes Before Your Eyes Moment’. The moment my Doctor broke the news that I had cancer, I was forced to watch the highlights of the previous 20 years of my life.
+
+说真的,我也有那些"跑马灯"时候.在医生宣布我有癌症的那一刻,我被逼着去想一下我生命里面有哪些高光的时刻.
+
+And you know what? There wasn’t much to see.
+
+你知道吗?我根本就没什么高光的时刻.
+
+An empty film reel, devoid of experiences, with no stories to tell. Gathering dust in the attic of my mind. A waste of a life not lived.
+
+一部空白的电影,没有什么深刻的经历,没有能告诉别人的故事.在我心上积上了灰尘.我这是浪费生命,而不是生活呀.
+
+I came out of hospital 244 days later.
+
+在 244 天之后,我出院了.
+
+I couldn’t be around crowds. I wasn’t strong enough to handle it. I couldn’t bear the harsh kiss of sunlight. My skin was sensitive and my bones brittle.
+
+我不能待在人多的地方.我还不够强去接受这些.我甚至不能忍受强烈的阳光.我的皮肤很敏感,骨骼很脆弱.
+
+And in that state of weakness. Of loss and despair. I made a decision.
+
+在这么脆弱的时候,在迷失和绝望里面.我做了一个决定.
+
+I made a promise to the 16 year old version of me who was so afraid he might spend time with a pretty girl, that he stayed home.
+
+我对 16 岁那个害怕和漂亮女孩子相处而自己呆在家里面的自己做下了承诺.
+
+And I made a promise to the 20 year old version of me who was so sad and empty with nothing to show for his two decades on planet earth.
+
+我对那个过去 20 多年没有任何故事去分享,生活一片空白的自己做下了承诺.
+
+I promised them - I promised myself - if Leukemia ever came calling again...
+
+我对 ta 们承诺,我对我自己承诺,如果 Leukemia 在打电话过来...
+
+That I would never, EVER be caught short of a story.
+
+那样子,我就会有一个不错的故事了.
+
+Everything you read on here about my life. Whether good or bad. Enduring or embarrassing. Is me making good on that promise.
+
+你在这里看到我的生活,好的或坏的.忍耐和尴尬的.都是我在对自己承诺的坚持.
+
+The turning point of my life was to miss a party and become a storyteller.
+
+那个转折点是我没去的聚会,然后成为了故事的讲述者.
+
+And it’s something I wear on my skin every single day.
+
+然后这就是我每天都肩负着的东西了.
+
+Because if I ever have to watch my life flash before my eyes again…I promise you now, I will have a life story worth watching.
+
+如果我再次经历跑马灯的时候,我答应你,我会有一个不错的故事值得你去看的.
+
+And for those of you wondering what happened to the school hottie…
+
+然后那些好奇那个漂亮的女孩子在后面发生了什么...
+
+Well the universe has a way of bringing meaning to madness.
+
+好吧,这个满是星光的宇宙会把可能延伸至无限.
+
+She grew up to be an artist. And she’s the one who did this tattoo.
+
+ta 之后成为了一个艺术家,然后我手上的这个纹身就是 ta 画的(shit,还是狗粮.)
