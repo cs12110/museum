@@ -1,6 +1,6 @@
 # Stories from Quora
 
-&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.如果侵犯了您的个人权益,请联系本人,本人立刻删除以及致歉.
+&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.
 
 &nbsp;&nbsp;由于本人英语水平较差,如果出现翻译错误或曲解原作者的翻译,请谅.
 

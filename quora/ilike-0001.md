@@ -1,40 +1,8 @@
 # Stories from Quora
 
-&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.如果侵犯了您的个人权益,请联系本人,本人立刻删除以及致歉.
+&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.
 
-&nbsp;&nbsp;由于本人英语水平较差,如果出现翻译错误或曲解原作者的翻译,请谅.<!-- TOC -->
-
-- [Stories from Quora](#stories-from-quora)
-    - [怎么应对熊家长和熊孩子](#怎么应对熊家长和熊孩子)
-    - [阅读的意义在哪里?](#阅读的意义在哪里)
-    - [你哭的最惨的一次是什么时候?](#你哭的最惨的一次是什么时候)
-    - [你听过最搞笑的对话是什么?](#你听过最搞笑的对话是什么)
-    - [你的另一半做过最奇怪的事情是什么?](#你的另一半做过最奇怪的事情是什么)
-    - [你最喜欢的笑话?](#你最喜欢的笑话)
-    - [旁人很难相信你经历过的故事是哪个?](#旁人很难相信你经历过的故事是哪个)
-    - [心理小招术](#心理小招术)
-    - [生活的黑暗面](#生活的黑暗面)
-    - [人生需推荐的 10 种经历](#人生需推荐的-10-种经历)
-    - [我该怎么心安理得的劈腿?](#我该怎么心安理得的劈腿)
-    - [你见过最伤心的事是什么?](#你见过最伤心的事是什么)
-    - [生活是不公平的例子](#生活是不公平的例子)
-    - [有哪些被严重低估的快乐?](#有哪些被严重低估的快乐)
-    - [你妈给你最好的建议是什么?在你成年之后感受到 ta 的好处没?](#你妈给你最好的建议是什么在你成年之后感受到-ta-的好处没)
-    - [作为父母,你最大的错是什么?](#作为父母你最大的错是什么)
-    - [到目前,你高光的一天是?](#到目前你高光的一天是)
-    - [你不应该做哪些事?](#你不应该做哪些事)
-    - [你藏着最好的秘密是什么?](#你藏着最好的秘密是什么)
-    - [生活中有哪些不重要的事?](#生活中有哪些不重要的事)
-    - [最浪漫的故事?](#最浪漫的故事)
-    - [你家小屁孩对你说过什么鼓舞人心的话?](#你家小屁孩对你说过什么鼓舞人心的话)
-    - [人能教育过度吗?](#人能教育过度吗)
-    - [最近遇到哪些没有意义的事?](#最近遇到哪些没有意义的事)
-    - [你人生中最大的转折点是什么?](#你人生中最大的转折点是什么)
-
-<!-- /TOC -->
-
-
-
+&nbsp;&nbsp;由于本人英语水平较差,如果出现翻译错误或曲解原作者的翻译,请谅.
 ---
 
 ## 怎么应对熊家长和熊孩子
@@ -427,7 +395,7 @@ I reached home, directly went on bed and kept crying. I had lost everything at t
 
 回到家,直接躺在床上继续哭.那会,我失去了我人生中所有的东西.差点就自杀了.情绪很低落.我几乎不和我的父母沟通,也没离开过房间.仅仅是依靠睡觉和看电影来打发时间.一天,在午饭后,我爸带着一个大纸盒走进我的房间,上面写着我的名字.他坐在床上,靠在我身边.打开那个盒子而且把里面的东西撒到到处都是.他在做什么?他为什么要这么做?一会,他说,"儿砸,你看见这些东西没,这些玩具,这些迷你模具,等等.这些是你小时候最想要的东西了,那时我没能力买给你,即使我在办公室工作 8 小时后还要去做兼职,但我还是没能给你想要的.我没轻易放弃,不是给你这些东西,但我真的希望看见你的笑脸".我爸用沉重的语气说,眼里带着泪光."儿砸,我可以为你做点什么,才能让你重新笑起来?".我靠着父亲的肩膀上像一个孩子一样哭着,泪流不止.父亲让我情绪安稳下来,说,"儿砸,无论你失败过少次都没所谓,最重要的是你反击和奋斗了多少次.出去再闯一次,像个男人一样,像个勇士一样,要像石头一样坚硬,那么久再也没有东西可以让你心碎了".
 
-So, I went back to the world again, ready for a tough fight, alert to dodge anything and everything. I became a rock. I called up my partner and convinced him to restart our project. We worked hard non-stop, day and night, restless. Made a well designed business plan. Pitched to hundreds of investors and customers. I was like a fireball, who was just moving ahead destroying all the obstacles. And one fine day, early morning, my partner called me and in an extremely excited voice, he said, “we made it brother, we made it. The USA’s company we pitched is interested in our project, and the first order is for fucking $26M”. At that moment, I was having coffee in a café and my eyes got teary of happiness. I took a cab, and ran into my office. I was filled with joy and a new energy, on my way to office I was thinking of gifting something to the man who deserved this success the most, I decided to gift him his dream car, “the Mercedes s-class” as money was not an issue, finally. I called up a friend who was working in Mercedes-Benz and asked him, if there was any S-Class available for immidiate delivery. He was shocked at first, but I promised to tell him the whole story later and look for a S-Class first. I reached office, and as I entered the office, my best friend came running towards me crying, and hugged me. I was surprised to see her in my office firstly, then she said, “your dad had a severe heart attack, he is serious”. I broke into pieces that moment, I fell on ground, totally blanked. For a while, I thought they are playing a prank, but they were true. I didn't know, what to do, my brain stopped working. My best friend and my partner somehow put me in the car and we were off to my family's place. We were about to leave the city, just then the guy from Mercedes called up and said that my S-Class was ready. I insisted my friends to let me take that car and make dad happy again one last time. We went to the showroom, picked the car, my partner did all the paper work and we were off. During whole journey I was thinking about my dad's words he said to me, the last time we met. I called my uncle on the way to enquire about dad's health, he said, my dad was suffering from heart disease from a couple of months, but never told you because I was busy fighting my own battle. He didn't want to be an obstacle in my success.
+So, I went back to the world again, ready for a tough fight, alert to dodge anything and everything. I became a rock. I called up my partner and convinced him to restart our project. We worked hard non-stop, day and night, restless. Made a well designed business plan. Pitched to hundreds of investors and customers. I was like a fireball, who was just moving ahead destroying all the obstacles. And one fine day, early morning, my partner called me and in an extremely excited voice, he said, “we made it brother, we made it. The USA’s company we pitched is interested in our project, and the first order is for fucking \$26M”. At that moment, I was having coffee in a café and my eyes got teary of happiness. I took a cab, and ran into my office. I was filled with joy and a new energy, on my way to office I was thinking of gifting something to the man who deserved this success the most, I decided to gift him his dream car, “the Mercedes s-class” as money was not an issue, finally. I called up a friend who was working in Mercedes-Benz and asked him, if there was any S-Class available for immidiate delivery. He was shocked at first, but I promised to tell him the whole story later and look for a S-Class first. I reached office, and as I entered the office, my best friend came running towards me crying, and hugged me. I was surprised to see her in my office firstly, then she said, “your dad had a severe heart attack, he is serious”. I broke into pieces that moment, I fell on ground, totally blanked. For a while, I thought they are playing a prank, but they were true. I didn't know, what to do, my brain stopped working. My best friend and my partner somehow put me in the car and we were off to my family's place. We were about to leave the city, just then the guy from Mercedes called up and said that my S-Class was ready. I insisted my friends to let me take that car and make dad happy again one last time. We went to the showroom, picked the car, my partner did all the paper work and we were off. During whole journey I was thinking about my dad's words he said to me, the last time we met. I called my uncle on the way to enquire about dad's health, he said, my dad was suffering from heart disease from a couple of months, but never told you because I was busy fighting my own battle. He didn't want to be an obstacle in my success.
 
 所以,我从新走进这世界,准备面对一场苦战,谨慎地去面对任何事情.我变成了一块石头.我联系我的伙伴并且说服 ta 和我重新开始之前的起步项目.我们昼夜不歇的工作.一个好的业务计划,带来了很多的客户和投资人.我像一个滚动的火球,把挡在我道路上的一切摧毁掉.在一个日子的清晨,我的伙伴打电话给我,带着超激动的语气说,"兄弟,我们做到了,我们做到了.美国的一家公司对我的项目感兴趣,第一个订单高达 2600 万,窝草".那会,我在咖啡馆喝着咖啡,激动得快留下了幸福的泪水.我打了一辆车,直奔办公室.我感到满满的兴奋和能量,在回去路上我想着该给一样什么样的礼物给这个最成功的人.我决定送 ta 一辆豪车,当现在钱不是问题的时候.我打给我一个在奔驰上班的朋友,问他那里是否还有可以立刻支付的 S-class 车.ta 觉得很震惊,但我承诺在以后会告诉 ta 所有的整一件事,而我现在只想找一辆车.我到到达办公的地方,走进办公室,我最好的朋友冲向我,抱着我哭.我第一眼看见 ta 在办公室感动很惊讶.然后 ta 说,"你爸心脏病发,很严重".那一刻,我的心又碎了.我感到自己在旋转,脑子一片空白.一会过后,我以后是他们的恶作剧,但他们是认真的.该怎么做,我脑子都停止了思考.我最好的朋友和我的伙伴把我推进一辆离开公司的车.我们大概离开这城市,这时那个奔驰销售员打电话给我告诉我奔驰准备好了.我朋友坚持让我取车回去,让我爸在最后的时光开心一次.我们去到展厅,取到那辆车,我伙伴签订了所有的合同然后我们离开了那地方.在路上我一直想着最后一次见面,我父亲对我说的话.我在路上打电话给我叔叔询问父亲的病情,得知父亲在几个月前就有心脏问题,但 ta 从没告诉我,因为我当时忙于打着自己的战斗.ta 不希望成为我成功路上的障碍.
 

@@ -1,6 +1,6 @@
 # Stories from Quora
 
-&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.如果侵犯了您的个人权益,请联系本人,本人立刻删除以及致歉.
+&nbsp;&nbsp;翻译问答平台[Quora](https://www.quora.com)上自己喜欢的故事.
 
 &nbsp;&nbsp;由于本人英语水平较差,如果出现翻译错误或曲解原作者的翻译,请谅.
 
@@ -386,7 +386,7 @@ Date: April 11 2018
 
 电影中: 考前一晚才复习,然后成为最牛逼的那个
 
-> 现实中: 考前一晚才复习,然后可能艰难飘过,或者挂掉,或者有一个好分数.
+现实中: 考前一晚才复习,然后可能艰难飘过,或者挂掉,或者有一个好分数.
 
 **b.**
 
@@ -396,7 +396,7 @@ Date: April 11 2018
 
 电影中: 如果父母知道女儿有一个男票,那没什么问题.
 
-> 现实中: 如果父母知道女儿有一个男票,现在问题才刚刚开始.
+现实中: 如果父母知道女儿有一个男票,现在问题才刚刚开始.
 
 **c.**
 
@@ -406,7 +406,7 @@ Date: April 11 2018
 
 电影中: 真实,乐于助人还有一副好心肠.
 
-> 现实中: 不是所有都是真的,乐于助人和有一副好心肠.
+现实中: 不是所有都是真的,乐于助人和有一副好心肠.
 
 **d.**
 
@@ -416,7 +416,7 @@ Date: April 11 2018
 
 电影中: 想成为一个舞者,歌手或者钢琴演奏家,然后就会成为舞者,歌手或者钢琴师.
 
-> 现实中: 想成为一个舞者,歌手或者钢琴演奏家,然后成为 ta 们父母想让 ta 们成为的人.
+现实中: 想成为一个舞者,歌手或者钢琴演奏家,然后成为 ta 们父母想让 ta 们成为的人.
 
 **e.**
 
@@ -426,7 +426,7 @@ Date: April 11 2018
 
 电影中: 穿她们自己喜欢的.
 
-> 现实中: 社会决定她们能应该穿什么.
+现实中: 社会决定她们能应该穿什么.
 
 **f.**
 
@@ -436,7 +436,7 @@ Date: April 11 2018
 
 电影中: 一般都很有钱
 
-> 现实中: 穷的,中产或者有钱.
+现实中: 穷的,中产或者有钱.
 
 **g.**
 
@@ -446,7 +446,7 @@ Date: April 11 2018
 
 电影中: 当她们化妆的时候,她们的头发看起来和精致.
 
-> 现实中: 她们的头发都很枯燥.
+现实中: 她们的头发都很枯燥.
 
 **i.**
 
@@ -456,7 +456,7 @@ Date: April 11 2018
 
 电影中: 与初恋白头偕老.
 
-> 现实中: 说实话,真爱几乎不存在.
+现实中: 说实话,真爱几乎不存在.
 
 **j.**
 
@@ -466,7 +466,7 @@ Date: April 11 2018
 
 电影中: 很苗条
 
-> 现实中: 瘦的,肥的,健康的,苗条的,小炸毛的,等等,等等.....
+现实中: 瘦的,肥的,健康的,苗条的,小炸毛的,等等,等等.....
 
 **k.**
 
@@ -476,7 +476,7 @@ Date: April 11 2018
 
 电影中: 她们说的都是对的.(玛丽苏看多了吧,姐?)
 
-> 现实中: 她们也是人,也会犯错的.
+现实中: 她们也是人,也会犯错的.
 
 **l.**
 
@@ -486,7 +486,7 @@ Date: April 11 2018
 
 电影中: 都是皮肤白净的.
 
-> 显示中: 各种颜色的(Sai Ram Sagar 的建议)
+显示中: 各种颜色的(Sai Ram Sagar 的建议)
 
 ---
 
@@ -688,17 +688,17 @@ Since last 2.5 years I am enjoying my own company in a 1bhk flat. I prepare meal
 
 这是我庆祝我第一份薪资的时候(2011 年 7 月)
 
-> 一整天都在等待工资到账的那一刻.
->
-> 几乎每一个小时都会登录进去查看余额.
->
-> 下班回去之后.有点小伤心的是,我在房子里面没有宽带.
->
-> 有点小惊喜的是(这是我第一次去实体银行),然后很高兴的从工资卡里面拿出钱来.
->
-> 走到最近的冰激凌商店里面,款待我自己.
->
-> 在后面的 2 年半时间里面,我享受自己待在公寓里面.我给我自己准备了肉和偶尔买一些礼物给自己.
+一整天都在等待工资到账的那一刻.
+
+几乎每一个小时都会登录进去查看余额.
+
+下班回去之后.有点小伤心的是,我在房子里面没有宽带.
+
+有点小惊喜的是(这是我第一次去实体银行),然后很高兴的从工资卡里面拿出钱来.
+
+走到最近的冰激凌商店里面,款待我自己.
+
+在后面的 2 年半时间里面,我享受自己待在公寓里面.我给我自己准备了肉和偶尔买一些礼物给自己.
 
 Well I am an introvert.
 
@@ -716,17 +716,17 @@ I would like to cite few examples from my life.
 
 好吧,我 tmd 是一个内向的人.
 
-> 我不需要别人的陪伴才快乐.
->
-> 我的计划不需要别人的帮忙也可以按时进行.
->
-> 我忙于让自己快乐的事,如阅读,煮饭,画画那些.
->
-> 或许我们都被人环绕,但我们感到孤单.
->
-> 我想我会去某一些城市的,在一生里面.
->
-> (BTW,内向的人,是没有生活的 !!!)
+我不需要别人的陪伴才快乐.
+
+我的计划不需要别人的帮忙也可以按时进行.
+
+我忙于让自己快乐的事,如阅读,煮饭,画画那些.
+
+或许我们都被人环绕,但我们感到孤单.
+
+我想我会去某一些城市的,在一生里面.
+
+(BTW,内向的人,是没有生活的 !!!)
 
 ---
 
@@ -744,9 +744,9 @@ And you’re very, very wrong.
 
 你知道你很漂亮.这是不需怀疑的.
 
-> 但有些时候,你表现得你只是金玉其外败絮其中.
->
-> 然而你错了,错得很离谱.
+但有些时候,你表现得你只是金玉其外败絮其中.
+
+然而你错了,错得很离谱.
 
 You’re beautiful because you’re adventurous. Brave.
 
@@ -754,7 +754,7 @@ You’re never afraid to try new things with new people.
 
 你漂亮是因为你是那些敢于冒险的人.牛逼的人.
 
-> 你从不害怕和陌生人尝试新的事.
+你从不害怕和陌生人尝试新的事.
 
 You’re beautiful because you’re not afraid to ask for help when you need it.
 
@@ -762,7 +762,7 @@ Even if it makes you look a little silly.
 
 你漂亮是因为你不怕在你需要的时候去寻求别人帮助.
 
-> 即使这让你看起来有些蠢萌.
+即使这让你看起来有些蠢萌.
 
 You’re beautiful because you laugh at everybody’s jokes, even when they’re not funny.
 
@@ -774,7 +774,7 @@ You don’t act like someone you’re not just to get other people to like you.
 
 你漂亮是因为你是天才(当然啦,我可是樱木花道).
 
-> 你不会显得别人不和你一样而格格不入.
+你不会显得别人不和你一样而格格不入.
 
 You’re beautiful because you’re not self-conscious.
 
@@ -782,7 +782,7 @@ You dance like nobody’s watching. You talk like you don’t care what people t
 
 你漂亮是因为你不作.
 
-> 你就像在没人关注的时候独自起舞.你直言直语,从不管 sb 怎么想.(这是脑壳有坑吧)
+你就像在没人关注的时候独自起舞.你直言直语,从不管 sb 怎么想.(这是脑壳有坑吧)
 
 You’re beautiful because you’re one of the few people who is truly like me.
 
@@ -792,9 +792,9 @@ There are few things I can think of that are more beautiful than that.
 
 你漂亮是因为你是少数人真的喜欢你.
 
-> 你知道我.你了解我.你就是我,在很多方面里面.
->
-> 还有一些我能想到比这个更美的你.
+你知道我.你了解我.你就是我,在很多方面里面.
+
+还有一些我能想到比这个更美的你.
 
 Your inner beauty far outshines your physical charm.
 
@@ -802,7 +802,7 @@ Don’t ever think you’re just another pretty face.
 
 你内心的丰富比你外在美多了.
 
-> 不要想你只是另一张漂亮的脸庞而已.(你不是,哇咔咔)
+不要想你只是另一张漂亮的脸庞而已.(你不是,哇咔咔)
 
 ---
 
@@ -992,7 +992,7 @@ Today my mum cooked for me. She is really a great cook and I can't name another 
 
 4/10/2012
 
-> 今天我妈给我煮东西吃了.她做的东西很好吃,我不知道有谁的厨艺可以超过她的!!!我要努力学习,赚大钱,给她买一栋大房子的.
+今天我妈给我煮东西吃了.她做的东西很好吃,我不知道有谁的厨艺可以超过她的!!!我要努力学习,赚大钱,给她买一栋大房子的.
 
 4/12/2012
 
@@ -1000,7 +1000,7 @@ I'm sick. My daddy drove me to the hospital. Looking at his figure, I can't beli
 
 4/12/2012
 
-> 我生病了.我爸带我去医院了.看着他的时候,我不能相信我自己是他的女儿,好幸福呀.
+我生病了.我爸带我去医院了.看着他的时候,我不能相信我自己是他的女儿,好幸福呀.
 
 4/13/2012
 
@@ -1008,7 +1008,7 @@ Today my teacher asked us for a composition named "The one I want to thank", I p
 
 4/13/2012
 
-> 今天老师要我们写一篇作文"你想要感谢的人",我打算写我的妈妈.她很开明而且还很好人.
+今天老师要我们写一篇作文"你想要感谢的人",我打算写我的妈妈.她很开明而且还很好人.
 
 My parents' attitude towards me changed.Every time they saw me, they almost ended up in tears of joy and love.
 
@@ -1054,11 +1054,11 @@ Date: April 28 2018
 
 a. [What do eagles taste like?](http://qr.ae/TUT7ZG)
 
-In the US, they taste like 5 years of prison food and a $50,000 fine.
+In the US, they taste like 5 years of prison food and a \$50,000 fine.
 
 老鹰吃起来什么味道
 
-> 在美国里面,吃起来就像 5 年的监狱饭盒和 5 万美元罚款
+在美国里面,吃起来就像 5 年的监狱饭盒和 5 万美元罚款
 
 b. [What is the most fragile thing in the universe?](http://qr.ae/TUT7Zn)
 
@@ -1066,7 +1066,7 @@ Taylor Swift’s heart.
 
 宇宙里面最易碎的物质是什么
 
-> Taylor Swift 的心
+Taylor Swift 的心
 
 c. [Why do I look like other humans?](http://qr.ae/TUT7ZF)
 
@@ -1074,7 +1074,7 @@ If you didn’t, we’d probably eat you.
 
 为什么我要像其他人?
 
-> 如果你不,你可能会被我们吃掉.
+如果你不,你可能会被我们吃掉.
 
 d. [If airplanes could speak, what would they say?](http://qr.ae/TUT7Zg)
 
@@ -1084,7 +1084,7 @@ The plane is afraid of heights.
 
 "啊,啊 x1000"飞机以 500 英里在 1 万米高飞行的时候的尖叫.
 
-> 那架灰机,恐高.
+那架灰机,恐高.
 
 ---
 
@@ -1197,9 +1197,9 @@ Lose the woman. Keep the dog.
 
 q: 我喜欢的女孩(大雾)叫我选她或者选我家的狗,我该怎么做?
 
-> 这个女的命令你抛弃你深爱的另一个
->
-> 放弃这个女的,留下那条狗.(那样就单身+狗???)
+这个女的命令你抛弃你深爱的另一个
+
+放弃这个女的,留下那条狗.(那样就单身+狗???)
 
 From: [What do I say when I’m caught staring at a girl’s ass?](http://qr.ae/TUTNrr)
 
@@ -1215,15 +1215,15 @@ Problem solved.
 
 q: 被人抓住我盯着女孩的屁股看,怎么办?
 
-> a. 继续盯着.这很重要.不要转移你的目光.
->
-> b. 拿出你的太阳眼镜.带上去,然后继续盯着.
->
-> c. 扶着你朋友的手臂,然后让 ta 带着你走.
->
-> -
->
-> 问题完美解决.(人生如戏,全靠演技!!!)
+a. 继续盯着.这很重要.不要转移你的目光.
+
+b. 拿出你的太阳眼镜.带上去,然后继续盯着.
+
+c. 扶着你朋友的手臂,然后让 ta 带着你走.
+
+-
+
+问题完美解决.(人生如戏,全靠演技!!!)
 
 From: [How can I protect myself and my family from atheists?](http://qr.ae/TUTNro)
 
@@ -1231,7 +1231,7 @@ Move to Pakistan.
 
 q: 我怎么从无神论那些人里面保护我的家庭?
 
-> 搬到巴基斯坦.(伊斯兰教欢迎你)
+搬到巴基斯坦.(伊斯兰教欢迎你)
 
 ---
 
@@ -2229,7 +2229,7 @@ You get to work and you’re late.
 
 “Jesus, you’re really going to pass the blame? Kick the guy out already.”
 
-"窝草,你打算用这个借口来逃避批评>不是已经把他赶走了吗?"
+"窝草,你打算用这个借口来逃避批评不是已经把他赶走了吗?"
 
 “I’ve tried, and—”
 
