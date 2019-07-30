@@ -651,3 +651,75 @@ Well the universe has a way of bringing meaning to madness.
 She grew up to be an artist. And she’s the one who did this tattoo.
 
 ta 之后成为了一个艺术家,然后我手上的这个纹身就是 ta 画的(shit,还是狗粮.)
+
+---
+
+## 你妈说了什么让你惊呆了?
+
+From:&nbsp;[What did your mother say that made your jaw drop?](https://qr.ae/TWvKuq)
+
+Date: July 30 2019
+
+“You know how much your dad and I love you, right?”
+
+"你知道你爸和我有多爱你,对吧?"
+
+I smiled and said “Of course I do, Mom.”
+
+我笑着回答说"当然知道啦,老妈"
+
+“And you know we’ve got your back, no matter what?”
+
+"你也知道无论你做什么,我们都会支持你的,对吧?"
+
+I knew this was leading somewhere, I just wasn’t sure where…
+
+我知道事情往诡异的方向发展了,但我还不知道具体是什么...
+
+“I know that, Mom. Always have.”
+
+"我知道,老妈.我一直都知道的."
+
+Then she dropped the mother of all bombs.
+
+然后 ta 扔出了炸弹.
+
+“Okay, so you and me, let’s cut the bullshit here. You sit here, you listen, and don’t say a word until I finish. Capisci? Good.
+
+We know you’re using, we know what and how much. You ain’t that slick, sugar. You look like death on a cracker; you’re grey, you’re skeletal, and your pupils look like pin heads. Not to mention, it’s eighty-five degrees and you’re wearing a hoodie.”
+
+"所以,现在就你和我,我们就不说这些客套话了.你坐在那里,不要动,在我说完之前不要出声.Capisci.
+
+好的. 我们知道吸毒,同时知道怎样和吸了多少.你不是那种狡猾的人,小屁孩.你看起来就像挂掉了一样.脸色发黑,瘦骨如柴,你的瞳孔就像针尖一样小.更不用去说,在这么热的天气里面,你还穿着一件连帽衣."
+
+Oh.fuck.
+
+卧槽.
+
+“You’ve got two options, and two options only. One, we lock you up in the house and do this old school Trainspotting-style, or two, you get your fucking ass into treatment. Your choice. I WILL NOT bury my precious little girl. It ain’t happening that way. I can’t do it. I just love you too much to watch this anymore.”
+
+"你有两个选择,也只有两个选择.第一个,我们会把你关起来,就像之前那些人做的那样子.第二,你自己 tmd 去参加治疗.这都是你的选择.我不会欺负我最爱的小屁孩的.这不应该发生的.我做不到.我只是太爱你了,再也不能看着你这样子了."
+
+I had just overdosed six days before, and EMTs kept me alive, bless them. That didn’t scare me enough. Those words from my mother, the woman who adores me more than anything? That broke me. Not only was I killing myself, I was killing my parents. I bet we hugged for an hour, crying our eyes out.
+
+在 6 天前,我吸毒过量了,然后医生把我救活了,谢谢 ta 们.死亡也没多让我恐惧.这些从我老妈说出来的话,那个一直把我当做全宇宙的人?这个让我心碎了.我不仅是在干掉我自己,我也在干掉我的父母.我打赌我们抱着把眼睛都哭瞎了.
+
+“Promise me, Poodle?” she said through her tears.
+
+"答应我,Poodle?" ta 带着泪痕说.
+
+“I swear it, Mom. I swear it.”
+
+"我发誓,老妈,我发誓."
+
+The next day, I signed up for methadone treatment. It saved my life. Two years later, I was off methadone, and ready to face the world, clear-headed, for the first time in years. This past April 30th, I have twenty-five years clean from heroin.
+
+第二天,我参加了一个戒毒治疗.这拯救了我的生活.两年后,我完成了治疗,然后准备面对这个世界,在这么多年来,第一次这么清醒.在今年的 4 月 30 日,我已经 20 年没碰毒品了.
+
+Thank you for shocking the shit out of me, Mom. Thank you for speaking the ugly truth. It might’ve been harsh, but I needed to hear it exactly that way. That had to be the hardest thing you’ve ever had to do, and you did it. Because of you and Dad, I’m still here.
+
+谢谢你让我害怕了,老妈.谢谢你说出那些丑陋的事实.这会很难听,但我的确听进去了.这一定是一直以来做过最难的事吧,然后你做到了.因为你和老爸,我现在仍然还活着.
+
+They tell me all the time how proud they are of me. I’m pretty proud of them, too. ❤️
+
+ta 们一直以来告诉我 ta 们对我有多骄傲.其实 ta 们也是我的骄傲呀.
